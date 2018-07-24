@@ -117,7 +117,7 @@ Now, you can read that as an external prince because in some degree, in a woman�
 
 ---
 ### Jordan Peterson on the Illuminati
-[https://www.youtube.com/watch?v=XnIFlD5Zvs8]`(https://www.youtube.com/watch?v=XnIFlD5Zvs8)
+[https://www.youtube.com/watch?v=XnIFlD5Zvs8](https://www.youtube.com/watch?v=XnIFlD5Zvs8)
 
 `[7:40]` “Life isn’t a game, it’s a set of games. And the rule is: never sacrifice victory across the set of games for victory in one game. Right? And that’s what it means to play properly. You wanna play so that people keep inviting you to play. Cuz that’s how you win—you win by being invited to play the largest possible array of games. And the way you do that is by manifesting the fact that you can play in a reciprocal manner every time you play even if there’s victory at stake. And that’s what makes you successful across time.
 
@@ -184,4 +184,4 @@ Ideology is a parasite on religious substructures. A religious narrative has a p
 "There's a transformation to some degree in the Prophetic Tradition, where there is a spirit that rises above the law, but this transformation really takes place in the New Testament. The Old Testament is prohibition, and the New Testament is, 'here's the good things you do once you're more than merely prohibiting yourself from impulsive sin. There's a positive good to be accomplished, not just a negative to be avoided. You have to look around you within your direct sphere of influence, and you fix the things that announce themselves to be in direct need of repair. And those are often small things. They can start with things as simple as: your room. Put it in order. It's not important that you put your room in order necessarily, what is important is that you learn to distinguish between chaos and order, and that you learn to be able to act in a manner that produces order. In most households there's a hundred things that could be done to make it less hideous and horrible. So practicing that is both a useful form of meditation, but it's also a divine act.""Women are attracted to men's ability to generate, to be productive, and to share. These qualities transcend wealth, which can disappear."
 
 ---
-Maps of Meaning digest version: [http://www.cogsci.ecs.soton.ac.uk/cgi/psyc/newpsy?10.077]`(http://www.cogsci.ecs.soton.ac.uk/cgi/psyc/newpsy?10.077)
+Maps of Meaning digest version: [http://www.cogsci.ecs.soton.ac.uk/cgi/psyc/newpsy?10.077](http://www.cogsci.ecs.soton.ac.uk/cgi/psyc/newpsy?10.077)
