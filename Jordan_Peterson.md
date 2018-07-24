@@ -1,9 +1,8 @@
-The Jordan B. Peterson Podcast 54 - Aspen Ideas Festival: From the Barricades of the Culture Wars
-
+### The Jordan B. Peterson Podcast 54 - Aspen Ideas Festival: From the Barricades of the Culture Wars
 [11:23] “Just because you _read_ something doesn’t mean you have a _right_ to it. You have to understand it, and understanding something that’s deep means a deep transformation, means you have to _live it._
 
-The Jordan B. Peterson Podcast 44 - Lafayette College - The Mill Series
-
+---
+### The Jordan B. Peterson Podcast 44 - Lafayette College - The Mill Series
 [29:49] “And the way that totalitarian states develop is that people give up their right to be, the right to exist with their own thoughts. They lie! That’s what happens, is that individuals sacrifice their own souls to the dictates of the state. And then everything goes badly sideways. And it’s like, you think how much evidence for that do we need? Y’know, you’re looking at a quarter of a billion deaths. It’s like, isn’t that enough?
 
 Well the people that I read were profound—Victor Frankel is a good example for beginners if you wanna read about this sort of thing, wrote a book called _Man’s Search for Meaning_. And Frankel, and also Solzhenitsyn, and a variety of other commentators as well who _really_ looked into what happened both in Nazi Germany and the Communist states. **Their conclusion was universal: that the lies and tyranny of the state are aided and abetted by the moral sacrifice of the individual.** It’s not top-down, the Nazis telling you what to do and you’re all innocent and obey. THAT’S not how it works—is you falsify your being, bit by bit, and you end up where you don’t wanna be. And that’s a _bad_ idea.
@@ -14,20 +13,16 @@ And the commander told the policemen that they could go home if they wanted to, 
 
 So, I think part of what makes me combative, compared to someone like [Jonathan] Haidt, is I’ve spent years looking at the worst things there are to look at. And I’ve learned from that. And I’ve certainly learned things that I won’t do. And one of them is I won’t let the government regulate my speech. It’s a mistake. I don’t care what compassionate principles hypothetically motivate that move. It was _unprecedented_ in English common law, that move. It was all buried under this leftist “compassion” which is mostly… it’s mostly a lie.
 
-The Jordan B. Peterson Podcast 26 - The Phenomenology of the Divine
-
+---
+### The Jordan B. Peterson Podcast 26 - The Phenomenology of the Divine
 [1:26:15] “I’d also say if you’re interested in Jung, the best book to read is _The Origins and History of Consciousness_. It’s the best intro to the Jungian world.”
 
 [1:44:40] “But that’s the Holy Grail, and the Holy Grail is lost—that’s the redemptive substance—and the knights of King Arthur go off to search for the Holy Grail. But they don’t know where to look! So, where do you look when you don’t know where to look? For something you need, desperately, but have lost? Well, each of the knights goes into the forest at the point that looks darkest to him.
 
 And that’s Jungian psychoanalysis in a nutshell. It’s like: **that which you fear and avoid. That which you hold in contempt. That which disgusts you and that you avoid. That’s the gateway to what you need to know.** There’s nothing new-age about that, that’s for sure.”
 
-  
-
-  
-
-The Jordan B. Peterson Podcast 25 - Walking With God: Noah and the Flood
-
+---
+### The Jordan B. Peterson Podcast 25 - Walking With God: Noah and the Flood
 [15:45] “You’ve got the fact that things aren’t exactly the way they should be at least gives you something to do, y’know, and maybe something _great_ to do, cuz there’s no shortage of suffering and trouble that besets the world that you could conceivably ameliorate in some way. And the utility of that and the intrinsic meaning of that is self-evident.
 
 So it also makes me curious about nihilism, for example, and despair, because—I understand those emotions, I understand them deeply, and the intellectual mindset that goes along with it; but they just seem beside the point to me in some sense because there are so many things that need doing, that all you really have to do is open your eyes and look at them, and then decide that you’re actually going to do something about them.
@@ -50,48 +45,44 @@ And the way the Biblical story unfolds is, well, it’s Cain…and then it’s t
 
 [2:05:30] “I see this [intellectual arrogance] for example happening in the United States in particular because the last time I went down there, for example, I had friends down there and some of those friends are very, very smart people. And some of them were talking about the Trump voters. And they were talking about the Trump voters with contempt. And I thought ‘you better watch that. Cuz that’s 50% of the damn population. And it might be convenient to think that they’re stupid and beneath you, but it’s not conducive to a civil state, and there’s no evidence that it’s true, because there isn’t a straight line between intelligent and wise.’”
 
-The Jordan B. Peterson Podcast 24 - The Psychology of the Flood
-
+---
+### The Jordan B. Peterson Podcast 24 - The Psychology of the Flood
 [1:06:51] “I’m trying to formulate a sentence, so I try to think up a good sentence that’s nailing what I’m trying to formulate, and then I try to pick it apart. And I do that a bunch of ways; I take the sentence and I put it on another page and then I write, like, ten different variants of the sentence and see if I can get a better variant. And then I try to think of ways that it’s a stupid sentence to see if I can, y’know, put a pry bar underneath it and loosen it up.
 
 And if I can’t do anything—if I can’t manage that then I keep the sentence that I’ve got. And I do that with ten sentences in a paragraph and I make sure the sentences are all arranged properly in the paragraph the same way, by rewriting a bunch of different variants of it, trying to get the word right and the phrase right and the sentence right and the sentence order right and the paragraph order right. And I can tell when it’s right _enough_ because I can’t make it any better.
 
 That doesn’t mean it’s _right_, it just means *I* can’t improve it. And so I get to the point where if I’m writing a paragraph and I write a variant, and I can’t tell if the variant is any better and it might be worse, then I’m done. I’ve hit the limit of my intellectual capacity, and it’s time to move on.
 
-The Jordan B. Peterson Podcast 23 - Cain and Abel: The Hostile Brothers
-
+---
+### The Jordan B. Peterson Podcast 23 - Cain and Abel: The Hostile Brothers
 [22:04] “This is one of mankind’s fundamental discoveries. Sometimes things do not go well. That’s self-evident. But here’s the rub: sometimes when things are not going well, it’s precisely that which is most valued that is the cause. Why? It’s because the world is revealed through the template of your values.
 
 If the world you are seeing is not the world you want therefore, it’s time to examine your values. It’s time to rid yourself of your current presuppositions.”
 
-The Jordan B. Peterson Podcast 22 - Adam and Eve: Self-Consciousness, Evil, and Death
-
+---
+### The Jordan B. Peterson Podcast 22 - Adam and Eve: Self-Consciousness, Evil, and Death
 [1:29:18] “The other thing about marriage—this is really worth knowing too—is that—I learned this in part by reading Jung—it’s like what do you do when you get married? That’s easy. You take someone who’s just as useless and horrible as you are, and then you shackle yourself to them. And then you say: ‘we’re not runnin’ away. No matter what happens.’ Yeah, well that’s perfect because then you don’t get to run away.
 
 And the thing is, is like if you can run away you can’t tell each other the truth. Because if you tell someone the truth about you and they don’t run away, they weren’t listening. And so if you don’t have someone around that can’t run away you can’t tell them the truth. And so that’s part of the purpose of the marriage. It’s like okay okay, I’ll bet on you, you bet on me, it’s a losing bet, we both know that. But given our current circumstances we’re unlikely to find anyone better, that’s for sure.
 
 There are two things that come off of that. One is, y’know people are waiting around to find Mr. and Mrs. Right and it’s like, here’s something to think about, man. If you went to a party and you found Mr. Right, and he looked at you and didn’t run away screaming, that would indicate that he _wasn’t_ Mr. Right **at all**. It’s like the old Nietzschian joke: if someone loves you, that should immediately disenchant you with them.
 
-The Jordan B. Peterson Podcast 04 - Religion, Myth, Science, Truth
-
+---
+### The Jordan B. Peterson Podcast 04 - Religion, Myth, Science, Truth
 [2:07:58] “The shadow is rooted in hell. And you think, well, that’s a nice metaphor. It’s like, don’t be so sure it’s a metaphor. It’s not exactly a metaphor. I mean I can elaborate on that a little bit.
 
 If you walk down Bloor Street (?) and you watch, you can see people in hell with no problem. They’re not only the people who are completely lost—the homeless—but they’re the homeless that you cannot look at. And the reason you can’t look at them is they find your act of mirroring their state of existence intolerable. It will instantly enrage them. And that’s because they’re in chaos, they’re in the underworld, but they’re in a particular suburb of the underworld. And that little suburb, that’s hell.
 
 And you think ‘well, is it eternal?’ Depends on what you mean. It’s been around a long time. It’s been around a _long_ time. And it’s really deep. And there’s another weird thing about hell, which is: if you’re in it, no matter how bad it is, there’s some stupid thing you can do to make it worse. And that’s why it’s bottomless.”
 
-  
-
-  
-
-The Jordan B. Peterson Podcast 21 - God and the Hierarchy of Authority
-
+---
+### The Jordan B. Peterson Podcast 21 - God and the Hierarchy of Authority
 [2:40:20] “One of the things I’ve really tried to puzzle out, and it’s not like I believe this, right, I’m just telling you where the edges of my thinking has been going, is that you have this crazy alliance between the feminists and the radical Islamists that I just do not get. It’s like why aren’t they protesting non-stop about Saudi Arabia is just completely beyond me. Like I do NOT understand it in the least. And I wonder too, I just wonder—and this is the Freudian me—is that is there an attraction that’s emerging among the female radicals for that totalitarian male dominance that they’ve chased out of the West? And I mean that’s a hell of a thing to think but after all, I am psychoanalytically minded and I DO think things like that. [laughter]
 
 Because I can just see no rational reason for it. The only other rational reason is that ‘well, the West needs to fall, and the enemy of my enemy is my friend.’ Yeah, so that could be the case. But I’m not going to shake my suspicion about this unconscious balancing because as the demand for egalitarianism and the eradication of masculinity accelerates, there’s going to be a longing in the unconscious for the precise opposite of that. The more you scream for equality, the more your unconscious is going to admire dominance.”
 
-Jordan Peterson on the Channel 4 Controversy and Philosophy of "How to be in the World"
-
+---
+### Jordan Peterson on the Channel 4 Controversy and Philosophy of "How to be in the World"
 [https://www.youtube.com/watch?v=E6qBxn_hFDQ](https://www.youtube.com/watch?v=E6qBxn_hFDQ)
 
 [1:46:27] “Cuz one of the old metaphysical problems is ‘why would God allow evil into the world’. I think well maybe God didn’t allow evil into the world; maybe God allowed the possibility of evil into the world—that’s different. And maybe the world with the possibility of evil is actually a better world than the world without the possibility of evil.
@@ -106,12 +97,8 @@ Peterson: “See that’s a real theological question, right? Cuz the question y
 
 And I thought ‘oh yes, that’s exactly it.’ Those who have swords and know how to use them but choose to keep them sheathed… ‘shall inherit the world.’ It’s like _yes._ Exactly right.”
 
-  
-
-  
-
-The Art of Manliness Podcast #335: Exploring Archetypes with Jordan B. Peterson
-
+---
+### The Art of Manliness Podcast #335: Exploring Archetypes with Jordan B. Peterson
 [https://www.artofmanliness.com/2017/08/31/podcast-335-using-power-myths-live-flourishing-life/](https://www.artofmanliness.com/2017/08/31/podcast-335-using-power-myths-live-flourishing-life/)
 
 *Note: just minutes before this monologue, Jordan Peterson makes a distinction between his use of the terms masculine/feminine versus male/female; they are not always equivalent in the analysis of archetypal stories.
@@ -128,8 +115,8 @@ Now, you can read that as an external prince because in some degree, in a woman�
 
 [47:25] “When young men mature and become men, it isn’t power that accrues to them, it’s competence. And the problem with the narrative that grips our culture at the moment is that we fail to make a distinction between power and competence. Power is just that I can hurt you and therefore I dominate. Competence is that I have status because I am offering to myself and to other people something that they voluntarily regard as of value. And my invitation to young men is to become competent, to forego power. Power is the tactic used by the incompetent to gain status. Competence is the tool used by the morally oriented to accrue authority and do good things in the world. Well that’s a noble call. And the only way out of the tragedy of existence is to follow the noble call.”
 
-Jordan Peterson on the Illuminati
-
+---
+### Jordan Peterson on the Illuminati
 [https://www.youtube.com/watch?v=XnIFlD5Zvs8](https://www.youtube.com/watch?v=XnIFlD5Zvs8)
 
 [7:40] “Life isn’t a game, it’s a set of games. And the rule is: never sacrifice victory across the set of games for victory in one game. Right? And that’s what it means to play properly. You wanna play so that people keep inviting you to play. Cuz that’s how you win—you win by being invited to play the largest possible array of games. And the way you do that is by manifesting the fact that you can play in a reciprocal manner every time you play even if there’s victory at stake. And that’s what makes you successful across time.
@@ -142,22 +129,22 @@ And I would also say it’s very much akin in a strange way, like the person who
 
 Think about it this way: do you like brave people, or do you like cowards? Well that’s pretty straightforward. And what’s the ultimate act of bravery? It’s to come to terms with the fact that you’re mortal and limited, and to live forthrightly regardless. Well obviously, that’s what is at the core of what’s admirable.”
 
-Joe Rogan Experience #1006 Jordan Peterson & Bret Weinstein (Sep 1, 2017)
-
+---
+### Joe Rogan Experience #1006 Jordan Peterson & Bret Weinstein (Sep 1, 2017)
 [37:50] “Get it into your head that you have the capacity for great evil. And stop targeting—stop assuming that that’s something manifesting itself only in the people that you disagree with politically. Take responsibility for that, and try to put your life together.”
 
 [1:45:30] “What Marx observed was that capital tended to accumulate in the hands of fewer and fewer people. And he said that’s a flaw of the capitalist system. THAT’S wrong. It’s not a flaw of the capitalist system. It is a _feature_ of every single system of production that we know of no matter who set it up and how it operates. And so now we have a problem, because what happens is as soon as you set up a domain of production—and you need to because you need things to be produced—then you instantly produce a competition, and the spoils go disproportionately to a tiny percentage of people.
 
 So then, so what? So the rest of the people starve, or the system becomes unstable because everybody’s mad. It’s like, that’s a big problem. Kay, so how do human beings fix that? Well the first thing we did was diversify the number of productive games. So you don’t get to be an NBA basketball star, okay, but you can run a podcast. It’s a completely different competitive landscape. So we can fractionate the production landscape, and then people who aren’t successful in one domain might be successful in others; that’s human creativity.”
 
-Peterson Conversation/BlackLivesMatter
-
+---
+### Peterson Conversation/BlackLivesMatter
 [https://www.youtube.com/watch?v=gakoqQz6aUc](https://www.youtube.com/watch?v=gakoqQz6aUc)
 
 [5:38] “Actually I’d just as soon we got rid of the whole hate speech thing because I think it’s unbelievably dangerous to drive people who hate underground **and not let them talk.** That’s partly because you don’t know where they are, you don’t know what they’re doing, and **you can’t refute them.”**
 
-The Joe Rogan Experience #958 - Jordan Peterson
-
+---
+### The Joe Rogan Experience #958 - Jordan Peterson
 [1:41:35] “So imagine that the normal world of mankind is inside that dominance hierarchy where everything is going well, because nothing abnormal is happening and you’re getting what you need and you want and your conscious knowledge suffices. Right? Okay, but then something tilts, and that structure no longer works. Where do you end up? You end up in the underworld. That’s when your partner of 20 years has a long-term affair, and you find out about it. It’s like you thought you knew where you were…but you didn’t. And now that you found out, you don’t know where you are. **When you don’t know where you are, you’re in the underworld.**
 
 Right, and that’s where the unconscious forces play: those are the gods, that’s why there’s gods in the underworld. And people go to the underworld all the time. It’s chaos and fear and depression, and hopelessness and imaginativeness, it’s everything—it’s chaos. It’s terrifying _and_ promising, because dragons have gold. Because the unknown has two things, just like the future. It’s like ‘look out, it’ll do you in’ and ‘look out, it offers everything to you.’ That’s the underworld.”
@@ -176,8 +163,8 @@ Some people know they’d be a street person, some people know they’d be an al
 
 [2:41:00] “I know for many people someone who’s rich is someone who has more money than them. Right? Which is one of the things I really find funny about the radical left protests on the campuses, it’s like ‘down with the 1%’. It’s like ‘hey, sunshine, you’re part of the 1%. You’re actually a baby 1/10th of 1% or maybe 1/100th of 1%, or you’re just angry because you’re not there _yet_. But you will be when you’re 40\. And you know it and so does everybody else. And now instead of regarding yourself properly as a fledgling member of the elite, you wanna have it both ways. You wanna be fledgling member of the elite, and champion of the underprivileged. So how narcissistic can you get? You wanna have all the benefits of having all the benefits, and you want all the benefits of having none of the benefits. Because just  all the benefits isn’t enough for you.”
 
-==from Wikiquote==
-
+---
+### from Wikiquote
 source: unknown
 
 “The basic totalitarian claim: What I know is everything that needs to be known, and if only it were manifest in the world, the world would become a utopia. I also think that that’s the core idea behind the Tower of Babel. It’s the idea that we can build a structure that makes the transcendent unnecessary.”
@@ -196,4 +183,5 @@ Ideology is a parasite on religious substructures. A religious narrative has a p
 
 "There's a transformation to some degree in the Prophetic Tradition, where there is a spirit that rises above the law, but this transformation really takes place in the New Testament. The Old Testament is prohibition, and the New Testament is, 'here's the good things you do once you're more than merely prohibiting yourself from impulsive sin. There's a positive good to be accomplished, not just a negative to be avoided. You have to look around you within your direct sphere of influence, and you fix the things that announce themselves to be in direct need of repair. And those are often small things. They can start with things as simple as: your room. Put it in order. It's not important that you put your room in order necessarily, what is important is that you learn to distinguish between chaos and order, and that you learn to be able to act in a manner that produces order. In most households there's a hundred things that could be done to make it less hideous and horrible. So practicing that is both a useful form of meditation, but it's also a divine act.""Women are attracted to men's ability to generate, to be productive, and to share. These qualities transcend wealth, which can disappear."
 
+---
 Maps of Meaning digest version: [http://www.cogsci.ecs.soton.ac.uk/cgi/psyc/newpsy?10.077](http://www.cogsci.ecs.soton.ac.uk/cgi/psyc/newpsy?10.077)
