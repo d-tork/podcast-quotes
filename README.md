@@ -39,7 +39,7 @@ And it’s quite interesting, y’know, it’s very soon after the story of Cain
 
 Which, Cain tells God at the end of that episode that his punishment is more than he can bear. And I think the reason for that is: **where are you once you destroy your own ideal?** What’s left for you? There’s nowhere to go. There’s no up. And when there’s no up, there’s a lot of down.
 
-And, y’know, there’s an idea put forth very nicely in Milton’s _Paradise Lost_, when he was describing, from a psychological perspective, essentially what hell is. And hell is—you’re in hell to the degree that you’re distant from the good. That might be a good way of thinking about it. And if you destroy your own ideal, which you do with jealousy and resentment and the desire to pull down people who you would like to be, let’s say, then you end up in a situation that’s indistinguishable from hell.
+And, y’know, there’s an idea put forth very nicely in Milton’s _Paradise Lost_, when he was describing, from a psychological perspective, essentially what hell is. And hell is...you’re in hell to the degree that you’re distant from the good. That might be a good way of thinking about it. And if you destroy your own ideal, which you do with jealousy and resentment and the desire to pull down people who you would like to be, let’s say, then you end up in a situation that’s indistinguishable from hell.
 
 And the way the Biblical story unfolds is, well, it’s Cain…and then it’s the flood. And so Cain adopts this mode of being that’s antithetical to being itself, at least to positive being itself—he does it voluntarily, he does it knowing full well what he’s doing—and the net consequence of this, that it ripples through the entire social structure, is that God stands back and says: This whole thing has got [sic] so bad the only thing we can do is wipe it to the ground. And that is no joke. That’s _exactly_ how things work.”
 
@@ -71,7 +71,7 @@ There are two things that come off of that. One is, y’know people are waiting 
 ### The Jordan B. Peterson Podcast 04 - Religion, Myth, Science, Truth
 `[2:07:58]` “The shadow is rooted in hell. And you think, well, that’s a nice metaphor. It’s like, don’t be so sure it’s a metaphor. It’s not exactly a metaphor. I mean I can elaborate on that a little bit.
 
-If you walk down Bloor Street (?) and you watch, you can see people in hell with no problem. They’re not only the people who are completely lost—the homeless—but they’re the homeless that you cannot look at. And the reason you can’t look at them is they find your act of mirroring their state of existence intolerable. It will instantly enrage them. And that’s because they’re in chaos, they’re in the underworld, but they’re in a particular suburb of the underworld. And that little suburb, that’s hell.
+If you walk down Bloor (?) Street and you watch, you can see people in hell with no problem. They’re not only the people who are completely lost—the homeless—but they’re the homeless that you cannot look at. And the reason you can’t look at them is they find your act of mirroring their state of existence intolerable. It will instantly enrage them. And that’s because they’re in chaos, they’re in the underworld, but they’re in a particular suburb of the underworld. And that little suburb, that’s hell.
 
 And you think ‘well, is it eternal?’ Depends on what you mean. It’s been around a long time. It’s been around a _long_ time. And it’s really deep. And there’s another weird thing about hell, which is: if you’re in it, no matter how bad it is, there’s some stupid thing you can do to make it worse. And that’s why it’s bottomless.”
 
@@ -101,7 +101,7 @@ And I thought ‘oh yes, that’s exactly it.’ Those who have swords and know 
 ### The Art of Manliness Podcast #335: Exploring Archetypes with Jordan B. Peterson
 [https://www.artofmanliness.com/2017/08/31/podcast-335-using-power-myths-live-flourishing-life/](https://www.artofmanliness.com/2017/08/31/podcast-335-using-power-myths-live-flourishing-life/)
 
-*Note: just minutes before this monologue, Jordan Peterson makes a distinction between his use of the terms masculine/feminine versus male/female; they are not always equivalent in the analysis of archetypal stories.
+```Note: just minutes before this monologue, Peterson makes a distinction between his use of the terms masculine/feminine versus male/female; they are not always equivalent in the analysis of archetypal stories.```
 
 “If you look at the movie _Sleeping Beauty_, for example. So the female—the feminine—is unconscious in that movie, that’s Sleeping Beauty. And she’s unconscious because she couldn’t tolerate the trauma of puberty and sexual development, essentially. And the reason for that is because her parents overprotected her, right?
 
