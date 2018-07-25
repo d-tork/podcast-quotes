@@ -1,6 +1,10 @@
 # A Collection of Quotes from Jordan Peterson
 ```Podcasts are referred to by episode name, others by link to source. Emphases, in most cases, reflects Peterson's tone, tempo, and volume as these are mostly audio sources. Some boldface sentences are my added emphasis, but rarely.```
 
+[Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
+
+---
+
 ### The Jordan B. Peterson Podcast 54 - Aspen Ideas Festival: From the Barricades of the Culture Wars
 `[11:23]` “Just because you _read_ something doesn’t mean you have a _right_ to it. You have to understand it, and understanding something that’s deep means a deep transformation, means you have to _live it._"
 
