@@ -5,7 +5,7 @@
 
 ---
 
-#### The Jordan B. Peterson Podcast 54 - Aspen Ideas Festival: From the Barricades of the Culture Wars
+##### The Jordan B. Peterson Podcast 54 - Aspen Ideas Festival: From the Barricades of the Culture Wars
 `[11:23]` “Just because you _read_ something doesn’t mean you have a _right_ to it. You have to understand it, and understanding something that’s deep means a deep transformation, means you have to _live it._"
 
 ---
