@@ -1,9 +1,16 @@
 ## A Collection of Quotes from Jordan Peterson
-```Podcasts are referred to by episode name, others by link to source. Emphases, in most cases, reflects Peterson's tone, tempo, and volume as these are mostly audio sources. Some boldface sentences are my added emphasis, but rarely.```
+```Podcasts are referred to by episode name, others by link to source. Emphases like italics and uppercase reflect Peterson's tone, tempo, and volume as these are mostly audio sources. Some boldface sentences are my added emphasis or highlights.```
 
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
 ---
+
+#### The Jordan B. Peterson Podcast 27 - The Call to Abraham
+`[43:55]` "You have to admit, even if you think about it as a modern person, that the act of sacrificing [like a baby goat] something might have some dramatic compulsion to it. Y'know, to go out into a flock and to take something that's newborn and to cut its throat and to bleed it and to burn it...might be a way of indicating to yourself that you're actually _serious_ about something. And it isn't so obvious that we have rituals of seriousness like that now.
+
+And so it's no so obvious that we're actually serious about anything. And so maybe that's not such a good thing. And so maybe we shouldn't be thinking that these people were so archaic and primitive and superstitious. It's possible that they knew something that we don't. And certainly in the Abrahamic stories one of the things that maintains Abraham's covenant with God is his continual willingness to sacrifice, and so that sacrificial issue is _so_ important because **you are not committed to something unless you're willing to sacrifice for it. Commitment and sacrifice are the _same thing_.**
+
+And I think it borders on miraculous that those concepts are embedded into this narrative at the level of dramatic action, y'know, instead of abstract explanation-people are acting this out. And the fundamental conception is so profound that it's really quite...awe-inspiring, it's breathtaking, really, when you understand what message is trying to be conveyed. You have to make sacrifices and what do you have to sacrifice? **You have to sacrifice that which is most valuable to you currently that's stopping you.** And God only knows what that is; it's certainly the _worst of you_, it's certainly that. And God only knows to what degree you're in love with the worst of you."
 
 #### The Jordan B. Peterson Podcast 54 - Aspen Ideas Festival: From the Barricades of the Culture Wars
 `[11:23]` “Just because you _read_ something doesn’t mean you have a _right_ to it. You have to understand it, and understanding something that’s deep means a deep transformation, means you have to _live it._"
