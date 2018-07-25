@@ -18,6 +18,12 @@ The West is founded on something that's far deeper than mere arbitrary narrative
 And it's also the idea that, without which...in the absence of that idea you cannot produce a functioning society, at any level of analysis. You can't function in relationship to yourself, because you won't take yourself with any degree of seriousness. You won't function well within your family because you won't treat your family members like they matter. And you won't function well as a citizen because you'll be nihilistic and cynical."
 
 ---
+#### The Jordan B. Peterson Podcast 41 - Quillette - Discussion with Editor Claire Lehmann
+`[04:43]` "So the stereotype literature is interesting, because one of the things so-called stereotype researchers have failed to do is to distinguish stereotype from heuristics. People use low-resolution representations of the world all the time, to simplify it. And it's absolutely vital that we do that—we cannot function without categorization.
+
+And I know this was a problem with [[Mahzarin] Banaji's](https://psychology.fas.harvard.edu/people/mahzarin-r-banaji) work—she did some of the early work on stereotyping—and I remember she did a talk at Harvard when I was teaching in Boston, and she was taken to task by the audience, who weren't all social psychologists, for failing to distinguish between categorization and stereotyping. And like that's actually a really big problem—it's not a trivial issue with regards to that research."
+
+---
 #### The Jordan B. Peterson Podcast 28 - Abraham: Father of Nations
 `[1:20:12]` “It’s pretty obvious that if you treat people well, if you really think about it and you’re not being naïvely optimistic, and like y’know a ‘nice, good person’, with all the weakness that that intimates. If you’re being hard-nosed and sensible you understand that if you treat people—if you trust people—that’s an act of courage. If you’re not naïve, right; if you’re naïve it’s an act of stupidity. Because you might get bit, and you probably will. And if you’re naïve and you get bit, you will suffer for it, it’ll traumatize you.
 
