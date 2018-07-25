@@ -1,5 +1,5 @@
 ### The Jordan B. Peterson Podcast 54 - Aspen Ideas Festival: From the Barricades of the Culture Wars
-`[11:23]` “Just because you _read_ something doesn’t mean you have a _right_ to it. You have to understand it, and understanding something that’s deep means a deep transformation, means you have to _live it._
+`[11:23]` “Just because you _read_ something doesn’t mean you have a _right_ to it. You have to understand it, and understanding something that’s deep means a deep transformation, means you have to _live it._"
 
 ---
 ### The Jordan B. Peterson Podcast 44 - Lafayette College - The Mill Series
@@ -11,7 +11,7 @@ And if you’re interested in that there’s a great book called _Ordinary Men_�
 
 And the commander told the policemen that they could go home if they wanted to, that they didn’t have to participate in this. And then, what _Ordinary Men_ does is document their transformation from ordinary policemen—the sort of people that you know—to guys who were taking naked, pregnant women out into the middle of fields and shooting them in the back of the head. And it documents ONE STEP AT A TIME how an ordinary person turns into someone like that. You think ‘well, we don’t want that sort of thing to happen anymore.’ Well, then you don’t wanna be that sort of person. That’s how it’s fixed. And if you’re not gonna be that sort of person **then you don’t take the first steps.** Cuz the first steps lead you down a pathway you don’t—at least in principle—you don’t wanna go.
 
-So, I think part of what makes me combative, compared to someone like [Jonathan] Haidt, is I’ve spent years looking at the worst things there are to look at. And I’ve learned from that. And I’ve certainly learned things that I won’t do. And one of them is I won’t let the government regulate my speech. It’s a mistake. I don’t care what compassionate principles hypothetically motivate that move. It was _unprecedented_ in English common law, that move. It was all buried under this leftist “compassion” which is mostly… it’s mostly a lie.
+So, I think part of what makes me combative, compared to someone like [Jonathan] Haidt, is I’ve spent years looking at the worst things there are to look at. And I’ve learned from that. And I’ve certainly learned things that I won’t do. And one of them is I won’t let the government regulate my speech. It’s a mistake. I don’t care what compassionate principles hypothetically motivate that move. It was _unprecedented_ in English common law, that move. It was all buried under this leftist “compassion” which is mostly… it’s mostly a lie."
 
 ---
 ### The Jordan B. Peterson Podcast 26 - The Phenomenology of the Divine
@@ -51,7 +51,7 @@ And the way the Biblical story unfolds is, well, it’s Cain…and then it’s t
 
 And if I can’t do anything—if I can’t manage that then I keep the sentence that I’ve got. And I do that with ten sentences in a paragraph and I make sure the sentences are all arranged properly in the paragraph the same way, by rewriting a bunch of different variants of it, trying to get the word right and the phrase right and the sentence right and the sentence order right and the paragraph order right. And I can tell when it’s right _enough_ because I can’t make it any better.
 
-That doesn’t mean it’s _right_, it just means *I* can’t improve it. And so I get to the point where if I’m writing a paragraph and I write a variant, and I can’t tell if the variant is any better and it might be worse, then I’m done. I’ve hit the limit of my intellectual capacity, and it’s time to move on.
+That doesn’t mean it’s _right_, it just means *I* can’t improve it. And so I get to the point where if I’m writing a paragraph and I write a variant, and I can’t tell if the variant is any better and it might be worse, then I’m done. I’ve hit the limit of my intellectual capacity, and it’s time to move on."
 
 ---
 ### The Jordan B. Peterson Podcast 23 - Cain and Abel: The Hostile Brothers
@@ -135,7 +135,7 @@ Think about it this way: do you like brave people, or do you like cowards? Well 
 
 `[1:45:30]` “What Marx observed was that capital tended to accumulate in the hands of fewer and fewer people. And he said that’s a flaw of the capitalist system. THAT’S wrong. It’s not a flaw of the capitalist system. It is a _feature_ of every single system of production that we know of no matter who set it up and how it operates. And so now we have a problem, because what happens is as soon as you set up a domain of production—and you need to because you need things to be produced—then you instantly produce a competition, and the spoils go disproportionately to a tiny percentage of people.
 
-So then, so what? So the rest of the people starve, or the system becomes unstable because everybody’s mad. It’s like, that’s a big problem. Kay, so how do human beings fix that? Well the first thing we did was diversify the number of productive games. So you don’t get to be an NBA basketball star, okay, but you can run a podcast. It’s a completely different competitive landscape. So we can fractionate the production landscape, and then people who aren’t successful in one domain might be successful in others; that’s human creativity.”
+So then, so what? So the rest of the people starve, or the system becomes unstable because everybody’s mad. It’s like, that’s a big problem. 'Kay, so how do human beings fix that? Well the first thing we did was diversify the number of productive games. So you don’t get to be an NBA basketball star, okay, but you can run a podcast. It’s a completely different competitive landscape. So we can fractionate the production landscape, and then people who aren’t successful in one domain might be successful in others; that’s human creativity.”
 
 ---
 ### Peterson Conversation/BlackLivesMatter
@@ -155,7 +155,7 @@ Well, you can quibble about the details: ‘no it’s not a god.’ Ok fine, it�
 
 Rogan: “Right, people get hung up on that one word.”
 
-Peterson: “Well they don’t really… we have to think about it functionally to some degree, we have to think about what that idea means. We’ve had that idea forever; it isn’t just some superstition. Jesus, you gotta be more sophisticated than that, man! And this is partly what I think is unfortunate about the new atheists, let’s say: they don’t take the damn problem seriously. They think ‘well, Christianity, that’s just a bunch of superstition.’ It’s like: really?? No. Sorry. That’s just not deep enough man.
+Peterson: “Well they don’t really… we have to think about it functionally to some degree, we have to think about what that idea means. We’ve had that idea forever; it isn’t just some superstition. Jesus, you gotta be more sophisticated than that, man! And this is partly what I think is unfortunate about the new atheists, let’s say: they don’t take the damn problem seriously. They think ‘well, Christianity, that’s just a bunch of superstition.’ It’s like: really?? No. Sorry. That’s just not deep enough man."
 
 `[2:24:46]` “So then we ask people: ‘Ok, so here think about this real carefully. Take all your faults and inadequacies, and your hatred for life, all of that. And imagine that gets the upper hand. And then think about where you could be in three to five years.’ Everyone knows, eh?
 
@@ -165,7 +165,7 @@ Some people know they’d be a street person, some people know they’d be an al
 
 ---
 ### from Wikiquote
-source: unknown
+sources unknown
 
 “The basic totalitarian claim: What I know is everything that needs to be known, and if only it were manifest in the world, the world would become a utopia. I also think that that’s the core idea behind the Tower of Babel. It’s the idea that we can build a structure that makes the transcendent unnecessary.”
 
