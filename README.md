@@ -21,7 +21,7 @@ And the commander told the policemen that they could go home if they wanted to, 
 So, I think part of what makes me combative, compared to someone like [Jonathan] Haidt, is I’ve spent years looking at the worst things there are to look at. And I’ve learned from that. And I’ve certainly learned things that I won’t do. And one of them is I won’t let the government regulate my speech. It’s a mistake. I don’t care what compassionate principles hypothetically motivate that move. It was _unprecedented_ in English common law, that move. It was all buried under this leftist “compassion” which is mostly… it’s mostly a lie."
 
 ---
-The Jordan B. Peterson Podcast 26 - The Phenomenology of the Divine
+#### The Jordan B. Peterson Podcast 26 - The Phenomenology of the Divine
 `[1:26:15]` “I’d also say if you’re interested in Jung, the best book to read is _The Origins and History of Consciousness_. It’s the best intro to the Jungian world.”
 
 `[1:44:40]` “But that’s the Holy Grail, and the Holy Grail is lost—that’s the redemptive substance—and the knights of King Arthur go off to search for the Holy Grail. But they don’t know where to look! So, where do you look when you don’t know where to look? For something you need, desperately, but have lost? Well, each of the knights goes into the forest at the point that looks darkest to him.
@@ -172,6 +172,7 @@ Some people know they’d be a street person, some people know they’d be an al
 
 ---
 #### from Wikiquote
+[https://en.wikiquote.org/wiki/Jordan_Peterson](https://en.wikiquote.org/wiki/Jordan_Peterson)
 sources unknown
 
 “The basic totalitarian claim: What I know is everything that needs to be known, and if only it were manifest in the world, the world would become a utopia. I also think that that’s the core idea behind the Tower of Babel. It’s the idea that we can build a structure that makes the transcendent unnecessary.”
