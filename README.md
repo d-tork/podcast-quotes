@@ -1,4 +1,4 @@
-# A Collection of Quotes from Jordan Peterson
+## A Collection of Quotes from Jordan Peterson
 ```Podcasts are referred to by episode name, others by link to source. Emphases, in most cases, reflects Peterson's tone, tempo, and volume as these are mostly audio sources. Some boldface sentences are my added emphasis, but rarely.```
 
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
@@ -9,7 +9,7 @@
 `[11:23]` “Just because you _read_ something doesn’t mean you have a _right_ to it. You have to understand it, and understanding something that’s deep means a deep transformation, means you have to _live it._"
 
 ---
-### The Jordan B. Peterson Podcast 44 - Lafayette College - The Mill Series
+#### The Jordan B. Peterson Podcast 44 - Lafayette College - The Mill Series
 `[29:49]` “And the way that totalitarian states develop is that people give up their right to be, the right to exist with their own thoughts. They lie! That’s what happens, is that individuals sacrifice their own souls to the dictates of the state. And then everything goes badly sideways. And it’s like, you think how much evidence for that do we need? Y’know, you’re looking at a quarter of a billion deaths. It’s like, isn’t that enough?
 
 Well the people that I read were profound—Victor Frankel is a good example for beginners if you wanna read about this sort of thing, wrote a book called _Man’s Search for Meaning_. And Frankel, and also Solzhenitsyn, and a variety of other commentators as well who _really_ looked into what happened both in Nazi Germany and the Communist states. **Their conclusion was universal: that the lies and tyranny of the state are aided and abetted by the moral sacrifice of the individual.** It’s not top-down, the Nazis telling you what to do and you’re all innocent and obey. THAT’S not how it works—is you falsify your being, bit by bit, and you end up where you don’t wanna be. And that’s a _bad_ idea.
@@ -21,7 +21,7 @@ And the commander told the policemen that they could go home if they wanted to, 
 So, I think part of what makes me combative, compared to someone like [Jonathan] Haidt, is I’ve spent years looking at the worst things there are to look at. And I’ve learned from that. And I’ve certainly learned things that I won’t do. And one of them is I won’t let the government regulate my speech. It’s a mistake. I don’t care what compassionate principles hypothetically motivate that move. It was _unprecedented_ in English common law, that move. It was all buried under this leftist “compassion” which is mostly… it’s mostly a lie."
 
 ---
-### The Jordan B. Peterson Podcast 26 - The Phenomenology of the Divine
+The Jordan B. Peterson Podcast 26 - The Phenomenology of the Divine
 `[1:26:15]` “I’d also say if you’re interested in Jung, the best book to read is _The Origins and History of Consciousness_. It’s the best intro to the Jungian world.”
 
 `[1:44:40]` “But that’s the Holy Grail, and the Holy Grail is lost—that’s the redemptive substance—and the knights of King Arthur go off to search for the Holy Grail. But they don’t know where to look! So, where do you look when you don’t know where to look? For something you need, desperately, but have lost? Well, each of the knights goes into the forest at the point that looks darkest to him.
