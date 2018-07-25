@@ -4,7 +4,16 @@
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
 ---
+#### The Jordan B. Peterson Podcast 28 - Abraham: Father of Nations
+`[38:47]` "Here's something I learned about true art—this is something I learned from Jung, it's so smart—so you imagine that you inhabit the land that you know, conceptually and practically, and imagine outside of that there's that massive space of things you don't know, and even outside of that there's this space of things that NO ONE knows, right, so it's the known territory surrounded by the unknown, that's the canonical archetypal landscape. And the unknown manifests itself to you and that's where new knowledge comes from.
 
+But the question is: how is that knowledge generated? It doesn't just leap from completely unknown to completely articulated in one move, that isn't how it happens. It has to pass through stages of analysis before it becomes articulable. And the first stage of analysis as far as I can tell is that you act it out; so if something _really_ surprises you, the first way that you react to it, your category's actually embodied like this, `[pantomimes a frightened cat]` that's your first category. It's not conceptual at all, it's _embodied_.
+
+And then maybe you start to...you're at home at night and y'know something startles you and you freeze, and then it's dark and your imagination populates the darkness with whatever might be making the noise. And that's the sequence, it's like: embodied response, imaginative representation, exploration, articulation. That's how information moves from the unknown to the known.
+
+And artists are the people who stand on that imagistic frontier, and they put themselves out into the unknown and they take a piece of it and they transform it into some mythological image. And they don't know what they're doing exactly, because they're guided by their intuition if they're real artists, otherwise they're just propagandists. They have to be _contending_ with something they don't understand. And what they do is they make it more understandable.""
+
+---
 #### The Jordan B. Peterson Podcast 27 - The Call to Abraham
 `[43:55]` "You have to admit, even if you think about it as a modern person, that the act of sacrificing [like a baby goat] something might have some dramatic compulsion to it. Y'know, to go out into a flock and to take something that's newborn and to cut its throat and to bleed it and to burn it...might be a way of indicating to yourself that you're actually _serious_ about something. And it isn't so obvious that we have rituals of seriousness like that now.
 
@@ -18,6 +27,7 @@ And that's really something, too. That's really something to think about. And it
 
 And to not see the analogy between that and the act of faith in God is to misunderstand the story completely."
 
+---
 #### The Jordan B. Peterson Podcast 54 - Aspen Ideas Festival: From the Barricades of the Culture Wars
 `[11:23]` “Just because you _read_ something doesn’t mean you have a _right_ to it. You have to understand it, and understanding something that’s deep means a deep transformation, means you have to _live it._"
 
