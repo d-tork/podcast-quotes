@@ -173,6 +173,7 @@ Some people know they’d be a street person, some people know they’d be an al
 ---
 #### from Wikiquote
 [https://en.wikiquote.org/wiki/Jordan_Peterson](https://en.wikiquote.org/wiki/Jordan_Peterson)
+
 sources unknown
 
 “The basic totalitarian claim: What I know is everything that needs to be known, and if only it were manifest in the world, the world would become a utopia. I also think that that’s the core idea behind the Tower of Babel. It’s the idea that we can build a structure that makes the transcendent unnecessary.”
