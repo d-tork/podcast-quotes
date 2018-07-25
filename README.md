@@ -4,14 +4,26 @@
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
 ---
+#### The Jordan B. Peterson Podcast 43 - Jordan Peterson's Rules for Life with Richard Fidler
+`[38:49]` Fidler: "You wrote a book early on in your academic career called _Maps of Meaning_, and what were you looking for when you were writing that book?"
+
+Peterson: "I was doing two things: I was trying to understand what the fundamental issue was at the heart of the Cold War; and then I was trying to determine whether what the Cold War was was merely an argument between two hypothetically equally valid narratives...which would be kind of a postmodern view of it, right. Well, there's a radical left-wing narrative and it's arbitrary, but perhaps we can organize society along its guidelines. And there's a free market capitalist, democratic narrative, and it's just as arbitrary, and perhaps we can organize society along _those_ lines, but one's arbitrary and so is the other. And so is any other narrative you might impose.
+
+And so I was curious about that because I thought, 'well, it looks like there's something really at stake here. We've generated tens of thousands of unbelievably powerful weapons, we've aimed them at each other, we're willing to _put the world to the torch_ because of this argument. Maybe there's something to it.'
+
+So I went into it with what I would say is an open mind, trying to understand if it was merely an argument between two arbitrary systems of moral relativism, or if there was something else at stake. And what I discovered, I would say—partly by reading the works of other people who had discovered this before me, let's say—is that no, they weren't equivalent systems in any way at all.
+
+The West is founded on something that's far deeper than mere arbitrary narrative. Part of that is **the idea of the sovereignty and divinity of the individual, which is the most powerful idea there is—the most powerful human idea there is.**
+
+And it's also the idea that, without which...in the absence of that idea you cannot produce a functioning society, at any level of analysis. You can't function in relationship to yourself, because you won't take yourself with any degree of seriousness. You won't function well within your family because you won't treat your family members like they matter. And you won't function well as a citizen because you'll be nihilistic and cynical."
 
 ---
 #### The Jordan B. Peterson Podcast 28 - Abraham: Father of Nations
-`[1:20:12]` “It’s pretty obvious that if you treat people well, if you really think about it and you’re not being naïvely optimistic, and like y’know a ‘nice, good person’, with all the weakness that that intimates. If you’re being hard-nosed and sensible you understand that if you treat people—if you trust people—that’s an act of courage. If you’re not naïve, right; if you’re naïve it’s an act of stupidity. Because you might get bit, and you probably will. And if you’re naïve and you get bit, you will suffer for it, it’ll traumatize you. 
+`[1:20:12]` “It’s pretty obvious that if you treat people well, if you really think about it and you’re not being naïvely optimistic, and like y’know a ‘nice, good person’, with all the weakness that that intimates. If you’re being hard-nosed and sensible you understand that if you treat people—if you trust people—that’s an act of courage. If you’re not naïve, right; if you’re naïve it’s an act of stupidity. Because you might get bit, and you probably will. And if you’re naïve and you get bit, you will suffer for it, it’ll traumatize you.
 
-But if you’re _not_ naïve, and you _know_ you can get bit, then you might ask, well, what should you do with people? And the answer is **you should trust them.** Not because you’re naïve and not because they couldn’t betray you and not because you don’t know that they could betray you, but because if you hold out your hand in trust then you’re inviting the best part of that person to step forward and that won’t happen unless you take that initial step and **that’s courage, not naïvety**. 
+But if you’re _not_ naïve, and you _know_ you can get bit, then you might ask, well, **what should you do with people? And the answer is you should trust them.** Not because you’re naïve and not because they couldn’t betray you and not because you don’t know that they could betray you, but because if you hold out your hand in trust then you’re inviting the best part of that person to step forward and that won’t happen unless you take that initial step and that’s courage, not naïvety.
 
-And so to trust someone once your eyes are open, that’s an act of courage. And that opens up the world.  
+And so to trust someone once your eyes are open, that’s an act of courage. And that opens up the world."
 
 ---
 #### The Jordan B. Peterson Podcast 28 - Abraham: Father of Nations
