@@ -89,7 +89,7 @@ Because I can just see no rational reason for it. The only other rational reason
 
 It’s something like that, y’know, in that maybe a man is better when he is a dangerous man who is being good than he would be if we was just a good man who wasn’t capable of being dangerous. And I believe that because the best men that I have ever met are very dangerous men. You don’t mess with them.”
 
-Indian dude: “So do you think that someone without teeth, or without the options to sin, can be good?”
+Timon Dias: “So do you think that someone without teeth, or without the options to sin, can be good?”
 
 Peterson: “See that’s a real theological question, right? Cuz the question you’re asking is—and this is tied up with the idea of free will and evil—‘can a person who doesn’t have the option to be evil be good? And I would say no.”
 
