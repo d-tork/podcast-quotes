@@ -4,6 +4,16 @@
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
 ---
+
+---
+#### The Jordan B. Peterson Podcast 28 - Abraham: Father of Nations
+`[1:20:12]` “It’s pretty obvious that if you treat people well, if you really think about it and you’re not being naïvely optimistic, and like y’know a ‘nice, good person’, with all the weakness that that intimates. If you’re being hard-nosed and sensible you understand that if you treat people—if you trust people—that’s an act of courage. If you’re not naïve, right; if you’re naïve it’s an act of stupidity. Because you might get bit, and you probably will. And if you’re naïve and you get bit, you will suffer for it, it’ll traumatize you. 
+
+But if you’re _not_ naïve, and you _know_ you can get bit, then you might ask, well, what should you do with people? And the answer is **you should trust them.** Not because you’re naïve and not because they couldn’t betray you and not because you don’t know that they could betray you, but because if you hold out your hand in trust then you’re inviting the best part of that person to step forward and that won’t happen unless you take that initial step and **that’s courage, not naïvety**. 
+
+And so to trust someone once your eyes are open, that’s an act of courage. And that opens up the world.  
+
+---
 #### The Jordan B. Peterson Podcast 28 - Abraham: Father of Nations
 `[38:47]` "Here's something I learned about true art—this is something I learned from Jung, it's so smart—so you imagine that you inhabit the land that you know, conceptually and practically, and imagine outside of that there's that massive space of things you don't know, and even outside of that there's this space of things that NO ONE knows, right, so it's the known territory surrounded by the unknown, that's the canonical archetypal landscape. And the unknown manifests itself to you and that's where new knowledge comes from.
 
