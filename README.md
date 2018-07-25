@@ -3,7 +3,6 @@
 
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
-
 ---
 #### The Jordan B. Peterson Podcast 43 - Jordan Peterson's Rules for Life with Richard Fidler
 `[38:49]` Fidler: "You wrote a book early on in your academic career called _Maps of Meaning_, and what were you looking for when you were writing that book?"
@@ -22,7 +21,11 @@ And it's also the idea that, without which...in the absence of that idea you can
 #### The Jordan B. Peterson Podcast 42 - March 2018 Q & A
 `[28:40]` "I think that the failure to separate church and state...or, even if we don't call it a failure, the fact that church and state hasn't technically been separated in Islam, makes it difficult to understand how it's possible for Islam and modern Western democratic traditions to coexist. *I* don't know how that gap can be bridged.
 
-You could say 'well, with good will' and let's hope that's the case. That doesn't mean I don't think that Muslims can live in a modern Western democracy, I mean there are many many kinds of Muslims just like there are many kinds of Jews and Christians. And then there's the problem of the current proclivity of the extreme end of the Muslim fundamentalist world to be very violent in very many ways."
+You could say 'well, with good will' and let's hope that's the case. That doesn't mean I don't think that Muslims can live in a modern Western democracy, I mean there are many many kinds of Muslims just like there are many kinds of Jews and Christians. And then there's the problem of the current proclivity of the extreme end of the Muslim fundamentalist world to be very violent in very many ways.
+
+`[1:31:53]` "Do I believe in the crucifixion? Well, certainly, I mean people...the crucifixion, how can you not believe in it if you think symbolically...it's like, human beings are—we're eternally crucified, right? Our lives are tragic and they end in death and we're all betrayed. We're _all_ betrayed. We all experience betrayal. So you can't _not_ believe in the crucifixion.
+
+'Do you believe in the resurrection?' Well, people die and are reborn all the time. This is what [the asker] is after here, 'I'm a sober alcohol and drug addict', well y'know you had to let a lot of you die when you stopped being an addict and something new be reborn. It's like what's the ultimate significance of that? And how's it tied to the notion of bodily resurrection? Well, I don't know what the ultimate significance is, but it does seem to be the pathway through life."
 
 ---
 #### The Jordan B. Peterson Podcast 41 - Quillette - Discussion with Editor Claire Lehmann
