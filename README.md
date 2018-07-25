@@ -3,6 +3,7 @@
 
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
+
 ---
 #### The Jordan B. Peterson Podcast 43 - Jordan Peterson's Rules for Life with Richard Fidler
 `[38:49]` Fidler: "You wrote a book early on in your academic career called _Maps of Meaning_, and what were you looking for when you were writing that book?"
@@ -16,6 +17,12 @@ So I went into it with what I would say is an open mind, trying to understand if
 The West is founded on something that's far deeper than mere arbitrary narrative. Part of that is **the idea of the sovereignty and divinity of the individual, which is the most powerful idea there is—the most powerful human idea there is.**
 
 And it's also the idea that, without which...in the absence of that idea you cannot produce a functioning society, at any level of analysis. You can't function in relationship to yourself, because you won't take yourself with any degree of seriousness. You won't function well within your family because you won't treat your family members like they matter. And you won't function well as a citizen because you'll be nihilistic and cynical."
+
+---
+#### The Jordan B. Peterson Podcast 42 - March 2018 Q & A
+`[28:40]` "I think that the failure to separate church and state...or, even if we don't call it a failure, the fact that church and state hasn't technically been separated in Islam, makes it difficult to understand how it's possible for Islam and modern Western democratic traditions to coexist. *I* don't know how that gap can be bridged.
+
+You could say 'well, with good will' and let's hope that's the case. That doesn't mean I don't think that Muslims can live in a modern Western democracy, I mean there are many many kinds of Muslims just like there are many kinds of Jews and Christians. And then there's the problem of the current proclivity of the extreme end of the Muslim fundamentalist world to be very violent in very many ways."
 
 ---
 #### The Jordan B. Peterson Podcast 41 - Quillette - Discussion with Editor Claire Lehmann
