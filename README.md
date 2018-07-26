@@ -23,9 +23,20 @@ And it's also the idea that, without which...in the absence of that idea you can
 
 You could say 'well, with good will' and let's hope that's the case. That doesn't mean I don't think that Muslims can live in a modern Western democracy, I mean there are many many kinds of Muslims just like there are many kinds of Jews and Christians. And then there's the problem of the current proclivity of the extreme end of the Muslim fundamentalist world to be very violent in very many ways.
 
-`[1:31:53]` "Do I believe in the crucifixion? Well, certainly, I mean people...the crucifixion, how can you not believe in it if you think symbolically...it's like, human beings are—we're eternally crucified, right? Our lives are tragic and they end in death and we're all betrayed. We're _all_ betrayed. We all experience betrayal. So you can't _not_ believe in the crucifixion.
+`[1:31:53]` "'Do I believe in the crucifixion?'  
+Well, certainly, I mean people...the crucifixion, how can you not believe in it if you think symbolically...it's like, human beings are—we're eternally crucified, right? Our lives are tragic and they end in death and we're all betrayed. We're _all_ betrayed. We all experience betrayal. So you can't _not_ believe in the crucifixion.
 
-'Do you believe in the resurrection?' Well, people die and are reborn all the time. This is what [the asker] is after here, 'I'm a sober alcohol and drug addict', well y'know you had to let a lot of you die when you stopped being an addict and something new be reborn. It's like what's the ultimate significance of that? And how's it tied to the notion of bodily resurrection? Well, I don't know what the ultimate significance is, but it does seem to be the pathway through life."
+'Do you believe in the resurrection?'  
+Well, people die and are reborn all the time. This is what [the asker] is after here, 'I'm a sober alcohol and drug addict.' Well y'know you had to let a lot of you die when you stopped being an addict and something new be reborn. It's like what's the ultimate significance of that? And how's it tied to the notion of bodily resurrection? Well, I don't know what the ultimate significance is, but it does seem to be the pathway through life."
+
+`[1:32:35]` "To believe. I would say you start believing not by attempting to convince yourself that the statement 'there is a God' is true like a fact is true, but to act out the proposition that you should shoulder your cross and stumble uphill towards the City of God; _that's_ belief, man. And you can do that, right away.
+
+Now, you might ask: 'well do I have any guarantee that that has transcendent and universal significance?' It's like well, it's not a bad model for emulation, so it has universal significance in that regard. We each have to shoulder the tragedy of our existence and stumble upwards despite that; that has universal significance.
+
+'Does it have universal significance outside of life? Like in the eternal realm?' [pause]  
+It wouldn't surprise me if it did. I suppose it would depend on what you mean by the eternal realm. It seems to have significance in the eternal realm of consciousness. It seems to have significance in the eternal realm of conscious fantasy—implicit fantasy, and mythology.
+
+'How is it connected with the factual world?' [pause] That's a hard question because the factual world in some sense divorced itself from that transcendental world during the development of the scientific methodology. So, 'never the twain shall meet'. It's a methodological issue in part."
 
 ---
 #### The Jordan B. Peterson Podcast 41 - Quillette - Discussion with Editor Claire Lehmann
