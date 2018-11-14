@@ -4,6 +4,24 @@
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
 ---
+#### The Jordan B. Peterson Podcast 57 - Dr. Oz - Jordan Peterson's Rules to Live By
+`[1:01:03]` Oz: "If zero is ultra-liberal and hundred is the ultra-conservative, alt-right, where are you on that spectrum? Do you think of yourself as more conservative, more liberal, I know over your life you've changed..."
+
+Peterson: "Well I'm a traditionalist in many senses, y'know, but I'm a very creative person, so it's very difficult, temperamentally, for me to place myself on the political spectrum. It's not like I don't think the dispossessed deserve a political voice. That's why I was interested in socialist politics as a kid. And I understand perfectly well that hierarchies dispossess, and that something has to be done about that.
+
+But I also think that we mess with fundamental social structures at our great peril. I think we've destabilized marriage very badly and that's not been good for people, especially not good for children. But I don't think it's been good for adult men and women, either.
+
+And I *certainly*, as a social scientist...one of the things you learn if you're a social scientist, and you're well-educated and informed, is that if you take a complex system—let's imagine you have a complex system—and you have a hypothesis about how to intervene so it will improve. OK, so what will you learn? You'll learn, once you implement the intervention, that you didn't understand the system, and that your stupid intervention did a bunch of things you didn't expect it to do, many of which ran counter to your original intent. And you *inevitably* learn that.
+
+So...I learned that...I had a whole series of very wise mentors who *insisted* to everyone they talked to who was interested in public policy, for example, that when they put in place a well-meaning public policy initiative that they put aside a substantial portion of the budget to evaluate the outcome of the initiative. Because the probability that the initiative would produce the results desired was virtually zero. And I believe that that's technically true.
+
+And so that tilts me in the conservative direction because I think 'well, that's sort of working, that system!' And I'm also not a utopian, so I don't expect systems to work perfectly. If they're not *degenerating into absolute tyranny*, I tend to think they're doing quite well. Because if you look worldwide and you look at the entire course of human history, degeneration into abject tyranny is the *norm*.
+
+And so if you see systems like our system, say in the democratic Western world, that are struggling by not too badly, it's like you should be in AWE of those structures, because they're so difficult to produce and so unlikely.
+
+And then I think well you take a system that's working not too badly and think 'well, I'm going to radically improve it.' It's like, no...you're not. You're not gonna radically improve it. You *might* be able to improve it incrementally, if you devoted a large part of your entire life to it, and you were very humble about your methods and your ambition. But if you think that some careless tweak of this complex system, as a consequence of the ideological presuppositions you learned in three weeks in your social justice class at university and that's gonna produce a radical improvement? It's like, you can't even begin to fathom the depths of your ignorance."
+
+---
 #### The Jordan B. Peterson Podcast 55 - August 2018 Q & A
 `[1:10:07]` "Now, I've put forward the proposition that the winner of the meta-game is also the person who goes out to conquer the unknown. Now, let's see if we can take that apart a bit.
 
