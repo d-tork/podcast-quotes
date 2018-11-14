@@ -4,8 +4,14 @@
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
 ---
-#### The Jordan B. Peterson Podcast 43 - Jordan Peterson's Rules for Life with Richard Fidler
-`[38:49]` Fidler:
+#### The Jordan B. Peterson Podcast 55 - August 2018 Q & A
+`[1:10:07]` "Now, I've put forward the proposition that the winner of the meta-game is also the person who goes out to conquer the unknown. Now, let's see if we can take that apart a bit.
+
+Well, one of the attributes of being a good sport, let's say, is that you're trying to extend your skill during the game. And so you *are* confronting the unknown in the game because you're trying to get better at the game. And then you're also doing that in a way that's of benefit to the team. And so then you can imagine that **being a team leader, in the meta-game**—which is the game of extending your skill across the broadest possible set of games—**is analogous to leading a team into the unknown.**
+
+So if you're gonna go confront the unknown, you're probably not gonna do it alone, although you could. And to some degree you have to be alone, but you're generally going to do it in a cooperatively and competitive way. I mean that's why in stories like *The Lord of the Rings* and *The Hobbit*, for example, and even *Harry Potter* for that matter: none of those people are alone. They *lead* or are part of a broader social group. And they're important, and they're team players in that group.
+
+So the team player element seems to be something that's common to conquering the unknown and to reciprocal altruism and to being invited to play the largest number of games. And the question then is what makes an effective leader? And **an effective leader is someone who's able to *synthesize* the group and to lead it forward towards the goal."**
 
 ---
 #### The Jordan B. Peterson Podcast 43 - Jordan Peterson's Rules for Life with Richard Fidler
