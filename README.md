@@ -5,6 +5,10 @@
 
 ---
 #### The Jordan B. Peterson Podcast 43 - Jordan Peterson's Rules for Life with Richard Fidler
+`[38:49]` Fidler:
+
+---
+#### The Jordan B. Peterson Podcast 43 - Jordan Peterson's Rules for Life with Richard Fidler
 `[38:49]` Fidler: "You wrote a book early on in your academic career called _Maps of Meaning_, and what were you looking for when you were writing that book?"
 
 Peterson: "I was doing two things: I was trying to understand what the fundamental issue was at the heart of the Cold War; and then I was trying to determine whether what the Cold War was was merely an argument between two hypothetically equally valid narratives...which would be kind of a postmodern view of it, right. 'Well, there's a radical left-wing narrative and it's arbitrary, but perhaps we can organize society along its guidelines. And there's a free market capitalist, democratic narrative, and it's just as arbitrary, and perhaps we can organize society along _those_ lines, but one's arbitrary and so is the other. And so is any other narrative you might impose.'
@@ -66,11 +70,11 @@ And artists are the people who stand on that imagistic frontier, and they put th
 #### The Jordan B. Peterson Podcast 27 - The Call to Abraham
 `[43:55]` "You have to admit, even if you think about it as a modern person, that the act of sacrificing something [like a baby goat] might have some dramatic compulsion to it. Y'know, to go out into a flock and to take something that's newborn and to cut its throat and to bleed it and to burn it...might be a way of indicating to yourself that you're actually _serious_ about something. And it isn't so obvious that we have rituals of seriousness like that now.
 
-And so it's no so obvious that we're actually serious about anything. And so maybe that's not such a good thing. And so maybe we shouldn't be thinking that these people were so archaic and primitive and superstitious. It's possible that they knew something that we don't. And certainly in the Abrahamic stories one of the things that maintains Abraham's covenant with God is his continual willingness to sacrifice, and so that sacrificial issue is _so_ important because **you are not committed to something unless you're willing to sacrifice for it. Commitment and sacrifice are the _same thing_.**
+And so it's not so obvious that we're actually serious about anything. And so maybe that's not such a good thing. And so maybe we shouldn't be thinking that these people were so archaic and primitive and superstitious. It's possible that they knew something that we don't. And certainly in the Abrahamic stories one of the things that maintains Abraham's covenant with God is his continual willingness to sacrifice, and so that sacrificial issue is _so_ important because **you are not committed to something unless you're willing to sacrifice for it. Commitment and sacrifice are the _same thing_.**
 
 And I think it borders on miraculous that those concepts are embedded into this narrative at the level of dramatic action, y'know, instead of abstract explanation—people are acting this out. And the fundamental conception is so profound that it's really quite...awe-inspiring, it's breathtaking, really, when you understand what message is trying to be conveyed. You have to make sacrifices and what do you have to sacrifice? **You have to sacrifice that which is most valuable to you currently that's stopping you.** And God only knows what that is; it's certainly the _worst of you_, it's certainly that. And God only knows to what degree you're in love with the worst of you."
 
-`[1:51:18]` "Y'know when Christ comes back in the Book of Revelation to judge people—because he comes back as a judge—and virtually everyone gets cast out with the chaff and not saved with the wheat...he says something very interesting, he appears in the vision with a sword coming out of his mouth, it's a horrifying vision. And he divides humanity into the damned and the saved. He says something very interesting. He says: 'To those who are neither hot nor cold I will spew you out of my mouth'. And it's a disgust metaphor, right, and what it says is **the worst punishment isn't waiting for those who committed to something and did wrong. The worst punishment is reserved for those who committed to nothing and stayed on the fence.**
+`[1:51:18]` "Y'know when Christ comes back in the Book of Revelation to judge people—because he comes back as a judge—and virtually everyone gets cast out with the chaff and not saved with the wheat...he says something very interesting, he appears in the vision with a sword coming out of his mouth, it's a horrifying vision. And he divides humanity into the damned and the saved. He says something very interesting. He says: 'To those who are neither hot nor cold I will spew you out of my mouth.' And it's a disgust metaphor, right, and what it says is **the worst punishment isn't waiting for those who committed to something and did wrong. The worst punishment is reserved for those who committed to nothing and stayed on the fence.**
 
 And that's really something, too. That's really something to think about. And it's also something I believe to be true because I see that stasis is utterly destructive. Because there's no progress, all there is is movement backwards. There's aging, and suffering, and no progress. And so to not commit to anything is the worst of all transgressions. To commit means to put your body and soul into something, to offer your life as a sacrifice means that you're willing to make a bargain with fate. And the bargain is: 'I'm going to act as if, if I give it my all, then the best possible thing will happen because of that.'
 
@@ -79,6 +83,35 @@ And to not see the analogy between that and the act of faith in God is to misund
 ---
 #### The Jordan B. Peterson Podcast 54 - Aspen Ideas Festival: From the Barricades of the Culture Wars
 `[11:23]` “Just because you _read_ something doesn’t mean you have a _right_ to it. You have to understand it, and understanding something that’s deep means a deep transformation, means you have to _live it._"
+
+`[36:55]` Weiss: "Since we're on the subject of universities, you recently said that what universities have done is beyond forgiveness. I wonder if you can explain what you mean by that; a second connected question is...should we abolish universities, or—"
+
+Peterson: "No, they'll do that themselves." [laughter]
+
+Weiss: "...let's hear a little bit about what you think renders them beyond forgiveness."
+
+Peterson: "Well...
+* They're overwhelmingly administratively top-heavy. And they don't spend any more money on the faculty than they did 30 years ago. And the cost of that administrative top-heaviness, which is well-documented—not by me, by other people, and it's been that way, it's been accelerating over the last 20 years—has been a radical increase in tuition fees, especially compared to the radical decrease in price of most things over the last 20 years.
+* Now, so they've become administratively top-heavy, the way—and this is especially true in the United States—the way that's been managed is that unsuspecting students are given free access to student loans that will cripple them through their 30s and their 40s, and the universities are enticing them to extend their care-free adolescence for a four-year period at the cost of mortgaging their future earnings in a deal that does not allow for escape through bankruptcy.
+
+  So it's essentially a form of indentured servitude; there's no excuse whatsoever for that. [It] means the administrators have learned to pick the future pockets of their students. And because they also view them in some sense as sacred cash cows and fragile, let's say, because you might wonder why the students are being treated like they're so fragile, it's like... 'well, we don't want them to drop out now, do we? If they drop out then we can't get our hands on their future earnings in a way that they can't escape from.'
+
+  And that cripples the economy, because the students come out overlaid with debt that they'll never pay off, right at the time that they should be at the peak of their ability to take entrepreneurial risks. So they can't do that, because they're too crippled by debt. And so that's absolutely appalling.
+* They're gerrymandering the accreditation processes so that the degree no longer has its credible value.
+* They're enabling the activist disciplines which have zero academic credibility whatsoever in my estimation, and I'm perfectly willing to defend that claim.
+* And by enabling the activist disciplines they're allowing for the distribution of this absolutely nonsensical view that western society is fundamentally a patriarchal tyranny, which is absurd on at least five dimensions of analysis but is becoming increasingly the thing you have to believe if you're allowed to speak in public  
+...
+* They're not teaching students to read critically.
+* They're not introducing them to great literature.
+* They're not teaching them to write.
+
+The list goes on and on."
+
+`[52:02]` "Now you might ask 'well, why is that [differentiation of the right and left brain] conceptualized as masculine versus feminine—because it's not male versus female, by the way, those are not the same thing, because one's conceptual. That's extraordinarily complicated. I think the reason is that we're social-cognitive primates, and that our fundamental cognitive categories—a priori cognitive categories—*are* masculine, feminine, and child. It's something like that, that's the fundamental structure of reality. Because we're social creatures and we view reality as something that's essentially social in its nature.
+
+And then when we started to conceptualize reality *outside* the social world—which wasn't very long ago by the way, and which is something that animals virtually don't do at all—we used those a priori social categories as filters through which we interpreted the external world. And we're sort of stuck with that, in some deep sense. And you might say 'well, why do we have to be stuck with that?' It's like, well because some things are very difficult to change.
+
+Like if you go watch a story, and the characters in this story slot themselves into those archetypal categories, then you'll understand the story. And if they don't, you won't. Because your understanding is predicated on application of the archetypal a prioris to the story. You wouldn't *understand* it otherwise."
 
 ---
 #### The Jordan B. Peterson Podcast 44 - Lafayette College - The Mill Series
