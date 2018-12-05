@@ -4,6 +4,18 @@
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
 ---
+#### The Jordan B. Peterson Podcast 58 - October 2018 Q & A
+`[35:57]` *If* Kavanaugh withdrew after being nominated, here's what might happen:
+* It would be read as an admission of guilt on his part.
+* It would embolden those who would use reputation destruction as a political maneuver.
+* It would weaken the generally and vitally important idea of the presumption of innocence.
+* It would indicate weakness on the part of the Republicans at a key moment prior to the November elections.
+* It would mean that an innocent man has been successfully pilloried by a mob.
+* It would validate the use of allegations of past behavior, well past any reasonable expiry date, as a weapon.
+* It would destroy the Republican opportunity to choose a Supreme Court justice, hand the Democrats an unearned victory, embitter a large percentage of the conservative base who would regard the withdrawal as a betrayal, and last and perhaps least,
+* Violate my own personal adage (for what that's worth) of 'don't apologize if you haven't done anything wrong.'
+
+---
 #### The Jordan B. Peterson Podcast 57 - Dr. Oz - Jordan Peterson's Rules to Live By
 `[1:01:03]` Oz: "If zero is ultra-liberal and hundred is the ultra-conservative, alt-right, where are you on that spectrum? Do you think of yourself as more conservative, more liberal, I know over your life you've changed..."
 
@@ -20,6 +32,16 @@ And so that tilts me in the conservative direction because I think 'well, that's
 And so if you see systems like our system, say in the democratic Western world, that are struggling by not too badly, it's like you should be in AWE of those structures, because they're so difficult to produce and so unlikely.
 
 And then I think well you take a system that's working not too badly and think 'well, I'm going to radically improve it.' It's like, no...you're not. You're not gonna radically improve it. You *might* be able to improve it incrementally, if you devoted a large part of your entire life to it, and you were very humble about your methods and your ambition. But if you think that some careless tweak of this complex system, as a consequence of the ideological presuppositions you learned in three weeks in your social justice class at university and that's gonna produce a radical improvement? It's like, you can't even begin to fathom the depths of your ignorance."
+
+`[1:51:06]` "Why does reality have an adversarial nature? Why would God set something on you... say, an enemy?  
+**An adversary makes you stronger.**  
+'Well isn't that cruel?' It's like, not if the person who sets the adversary on you believes that you could *win.*"
+
+`[2:13:43]` "The way I look at this is: let's say that you're blessed with success, so you have a lot of resources at your disposal, ok. Now you can feel guilty about that, and perhaps, to some degree, you should. That's between you and your conscience.
+
+But let's say that you've generated your resources in a fair game. And that a lot of people have benefitted along with you, so you've played a straight game. Now you have all these resources. OK, so what should you do with the resources? Well, *impulsive pleasure.* It's like well, a little of that goes a long ways, and it's liable to take you down in a very short period of time.
+
+So how about not that, OK, it's not a good medium- to long-term solution. OK how about: *your ethical responsibility grows in proportion to the resources that you have at your control.* And the right thing to do is that as you become more competent, authoritative, and able, is to expand the range in which you're operating. To do more good."
 
 ---
 #### The Jordan B. Peterson Podcast 55 - August 2018 Q & A
