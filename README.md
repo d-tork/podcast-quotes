@@ -54,6 +54,14 @@ So if you're gonna go confront the unknown, you're probably not gonna do it alon
 So the team player element seems to be something that's common to conquering the unknown and to reciprocal altruism and to being invited to play the largest number of games. And the question then is what makes an effective leader? And **an effective leader is someone who's able to *synthesize* the group and to lead it forward towards the goal."**
 
 ---
+#### The Jordan B. Peterson Podcast 51 - Russell Brand
+`[34:20]` Peterson: "[the Self] is often composed of things you refuse or weren't willing to develop. And so when Jung talks about, for example, the incorporation of the Shadow is that you've constructed an ego and there's things it can do and can't do that it's allowed to do and isn't allowed to do, and then there's a shadow domain that would consist of those things you could do but haven't. And some of that's terrible, but some it's what you need to break free."
+
+Brand: "Is there an infinite variety in the Shadow? Or are there sort of templates there, would you say, that are a common component of the shadow—"
+
+Peterson: "—aggression. Aggression and lust. Because they're the most difficult to integrate into the ego. Because aggression destroys and, of course, lust subsumes the individual to, well, to sexual desire."
+
+---
 #### The Jordan B. Peterson Podcast 43 - Jordan Peterson's Rules for Life with Richard Fidler
 `[38:49]` Fidler: "You wrote a book early on in your academic career called _Maps of Meaning_, and what were you looking for when you were writing that book?"
 
