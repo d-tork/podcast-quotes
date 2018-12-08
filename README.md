@@ -62,6 +62,14 @@ Brand: "Is there an infinite variety in the Shadow? Or are there sort of templat
 Peterson: "—aggression. Aggression and lust. Because they're the most difficult to integrate into the ego. Because aggression destroys and, of course, lust subsumes the individual to, well, to sexual desire."
 
 ---
+#### The Jordan B. Peterson Podcast 47 - Warren Farrell - The Absolute Necessity of Fathers
+`[51:33]` "Well the thing about the games that's different—like the video games—what's different is... so, a game for a little kid has to be immediately rewarding. That's why rough-and-tumble play works, for example, it has to be immediately rewarding. And then the game shades into real life. But as the game shades into real life, what happens is the rewards are deferred. And you get more and more disciplined at not being immediately rewarded, like when you're learning to read or play the piano, for the long-term goal.
+
+The thing about video games is that they DO require the development of skill; but the immediate reward is built-in *along with* the delayed reward. Because otherwise the game wouldn't be fun for someone who's learning. So the problem is that a lot of real-life games aren't necessarily fun *while you're learning them*. 'Cuz you have to attain a certain level of mastery and that requires discipline.
+
+That's also what's wrong with the idea that children can just learn in keeping with what they're spontaneously interested in. It's like there's some truth in that, because why not follow a child's interests, but the problem is that many highly skilled endeavors—virtually any endeavor that's going to be of economic or productive utility—requires [an] apprenticeship where there's a lot of grinding. There's a lot of just disciplined repetition."
+
+---
 #### The Jordan B. Peterson Podcast 43 - Jordan Peterson's Rules for Life with Richard Fidler
 `[38:49]` Fidler: "You wrote a book early on in your academic career called _Maps of Meaning_, and what were you looking for when you were writing that book?"
 
