@@ -32,6 +32,48 @@ It isn't a consequence of the fact that our society isn't organized properly.
 
 **It's just part of _being_.**
 
+`[2:20:23]` audience question (paraphrased): Would you agree with the sentiment that the left pushes 
+so hard and keeps doubling down, and they just want to "win"? 
+
+`[2:21:59]` Well first of all...[t]hings can go out of hand very rapidly. And the reason they do
+that is because of positive feedback loops...and that's what polarization is. It's like: I tap you,
+you tap me. I slap you, you punch me. Well, up it goes. 
+
+Well I think that's partly why, in the New Testament for example, there's an injunction that says,
+uh, [turn the other cheek; resist not evil.](https://www.biblegateway.com/passage/?search=Matthew%205%3A39)
+_WHY?_
+
+[pause] Because otherwise you get into a positive feedback loop and you'd better look the hell out.
+And things can tilt very, very rapidly.
+
+So I would say: _maintain self control. And don't aim to "win"._ Aim at peace. Because winning...
+that's not peace. It's better to aim for peace. 
+
+...
+So it really is important not to "win". It's like fighting with your wife: you don't "win". You 
+can't, cuz you have to live with her. You can't win! But maybe you can solve the problem and bring
+about peace. And so you gotta practice doing that, practice restraint. 
+
+And remember, too, that these people you're talking about who are radical leftists is that most of
+the time they're not. Like they're ninety-five percent like you. And if you pull them out of the 
+mob they're just like your neighbor's nineteen-year-old kid who's kinda clueless, and rebellious.
+And who you might even _like_. 
+
+...
+You don't wanna make a low-resolution, homogeneous representation of them. And so that's why, again,
+I think **instead of "winning" you turn to your own development. You turn to your own development. 
+You do what you can to stop doing the things you're doing that aren't good.** Cuz you're not gonna 
+hurt anybody if you do that. All you're gonna do is help. Otherwise you'll participate in this 
+polarization. 
+
+...
+We have to be careful... I really do believe it, I truly believe this—this is something I learned
+in part from Solzhenitsyn and in part from Jung—is that **the way that you set the world straight 
+is by constraining the malevolence in your own heart.**
+
+And that's no joke, man. That's no easy thing. And that's a good voyage for people to go on if they
+want something difficult and worthwhile to do.
+
 ---
 #### The Jordan B. Peterson Podcast 58 - October 2018 Q & A
 `[35:57]` *If* Kavanaugh withdrew after being nominated, here's what might happen:
