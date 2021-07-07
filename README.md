@@ -4,10 +4,19 @@
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
 ---
+#### The Jordan B. Peterson Podcast S4E20 - You're Next | Dr. Rima Azar
+`[1:00:50]` I could see a power play. I could also see a corruption of the idea of identity.
+Identity isn't merely what you feel you are, at any given point. Identity is something you
+negotiate with others, you _have_ to negotiate with others, because they have to know what the
+rules are! And if you can change the rules and make them arbitrary at any point then how can
+anyone play with you? And maybe if you're setting up a game that no one can play you're doing that
+because _you're_ the one that has a problem with power. Just maybe.
+
+---
 #### Identity politics and the Marxist lie of white privilege
 [Vancouver, 3 Nov 2017](https://www.youtube.com/watch?v=PfH8IG7Awk0)
 
-`[37:00]` The work [i.e. the curse upon Adam and Eve in the garden] is the sacrifice of the present for the future... So that's it, that's the curse, in some sense. The thing is there's a _theory_ in there, there's an interesting theory of _suffering_ implicit in that story. The theory of suffering is that suffering is built into the structure of self-conscious being&mdash;it's built right into the structure. So if you're a self-conscious being, that's your lot. 
+`[37:00]` The work [i.e. the curse upon Adam and Eve in the garden] is the sacrifice of the present for the future... So that's it, that's the curse, in some sense. The thing is there's a _theory_ in there, there's an interesting theory of _suffering_ implicit in that story. The theory of suffering is that suffering is built into the structure of self-conscious being&mdash;it's built right into the structure. So if you're a self-conscious being, that's your lot.
 
 It isn't someone else's fault.
 
