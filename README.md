@@ -6,6 +6,37 @@ boldface sentences are my added emphasis or highlights._
 [Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
 
 ---
+#### The Jordan B. Peterson Podcast S4E41 - The Four Dos and Don'ts of Divorce | Warren Farrell
+`[1:25:40]` Peterson: You cite an interesting stat here, too, which I thought was worth talking 
+about. Um...  on who should pay the bill on the first date. Um...seventy-two percent of women 
+think that a man should pay the full bill on the first date. Now remember: they've already 
+selected this man and what that means is that he's likely to be at or above them in the 
+socioeconomic hierarchy. And perhaps slightly older, so y'know, in some sense they can afford—he 
+can afford—to pay better than she can.  
+
+But, in any case, eighty-two percent of _men_ think the same. And so men are playing the hypergamy
+game even more intensely than women are, at least with regards to that particular statistic. So...
+
+Farrell: And this gets into the psychology of the pay gap because many women feel okay about that 
+because they feel like 'okay, men earn more than I do for the same work.' And in fact that is not
+really accurate. Here is what _is_ accurate: **fathers earn more than moms do. The pay gap is not
+men—women. The pay gap is dads versus moms.** And when dads become dads, they're far more likely to
+give up the things that they love to do that pay less, and do the things that they like to do a lot
+less; quit that musician gig that paid much less, and do something responsible, quote unquote, like
+selling product Y.
+
+`[1:47:33]` Peterson: I've made light of \[rejection\], by teasing my class, my students. I say... 
+well, what's the joke... "you're perfectly suitable as a companion, but in no way should your 
+genetic material be allowed to propogate itself into the next generation." Right, that's the core
+of rejection, and it _cuts to the bone_. And it isn't obvious that that's sufficiently understood,
+how terrified men are of female rejection. 
+
+...And that's the advantage of dating sites like Tinder, because the rejection is taken out of the
+game, essentially, or it's hidden—masked. Tinder is a revolutionary technology because it alters
+the reward structure, reward and punishment structure of dating. I mean, it's incendiary. And 
+named properly. 
+
+---
 #### The Jordan B. Peterson Podcast S4E20 - You're Next | Dr. Rima Azar
 `[1:00:50]` I could see a power play. I could also see a corruption of the idea of identity.
 Identity isn't merely what you feel you are, at any given point. Identity is something you
