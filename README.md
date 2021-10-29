@@ -119,7 +119,7 @@ the reward structure, reward and punishment structure of dating. I mean, it's in
 named properly. 
 
 ---
-#### The Jordan B. Peterson Podcast S4E20 - You're Next | Dr. Rima Azar
+#### The Jordan B. Peterson Podcast S4E28 - You're Next | Dr. Rima Azar
 `[1:00:50]` I could see a power play. I could also see a corruption of the idea of identity.
 Identity isn't merely what you feel you are, at any given point. Identity is something you
 negotiate with others, you _have_ to negotiate with others, because they have to know what the
