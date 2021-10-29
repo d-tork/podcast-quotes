@@ -768,9 +768,11 @@ choose to keep them sheathed… ‘shall inherit the world.’ It’s like _yes.
 #### The Art of Manliness Podcast #335: Exploring Archetypes with Jordan B. Peterson
 [https://www.artofmanliness.com/2017/08/31/podcast-335-using-power-myths-live-flourishing-life/](https://www.artofmanliness.com/2017/08/31/podcast-335-using-power-myths-live-flourishing-life/)
 
-```Note: just minutes before this monologue, Peterson makes a distinction between his use of the 
+```
+Note: just minutes before this monologue, Peterson makes a distinction between his use of the 
 terms masculine/feminine versus male/female; they are not always equivalent in the analysis of 
-archetypal stories.```
+archetypal stories.
+```
 
 “If you look at the movie _Sleeping Beauty_, for example. So the female—the feminine—is 
 unconscious in that movie, that’s Sleeping Beauty. And she’s unconscious because she couldn’t 
