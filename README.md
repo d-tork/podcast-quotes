@@ -944,95 +944,95 @@ you.”
 
 sources unknown
 
-“The basic totalitarian claim: What I know is everything that needs to be known, and if only it 
-were manifest in the world, the world would become a utopia. I also think that that’s the core 
-idea behind the Tower of Babel. It’s the idea that we can build a structure that makes the 
-transcendent unnecessary.”
+> The basic totalitarian claim: What I know is everything that needs to be known, and if only it 
+> were manifest in the world, the world would become a utopia. I also think that that’s the core 
+> idea behind the Tower of Babel. It’s the idea that we can build a structure that makes the 
+> transcendent unnecessary.
 
-"What happens in the story of Adam and Eve is that when people become self conscious, they get 
-thrown out of paradise and then they're in history. And history is a place where there's pain in 
-child birth, and where you're dominated by your mate, and where you have to toil like mad like no 
-other animal because you're aware of your future. You have to work and sacrifice the joys of the 
-present for the future constantly, and you know that you're going to die. And you have all that 
-weight on you. How could anything be more true than that? Unless you're naive beyond 
-comprehension. There's something that's echoed about your life in that representation. We’re such 
-strange creatures because we don't really fit into being in some sense, and that's what's expressed
-in the notion of The Fall."
+> What happens in the story of Adam and Eve is that when people become self conscious, they get 
+> thrown out of paradise and then they're in history. And history is a place where there's pain in 
+> child birth, and where you're dominated by your mate, and where you have to toil like mad like no 
+> other animal because you're aware of your future. You have to work and sacrifice the joys of the 
+> present for the future constantly, and you know that you're going to die. And you have all that 
+> weight on you. How could anything be more true than that? Unless you're naive beyond 
+> comprehension. There's something that's echoed about your life in that representation. We’re such 
+> strange creatures because we don't really fit into being in some sense, and that's what's expressed
+> in the notion of The Fall.
 
-"The notion that every single human being, regardless of their peculiarities and their 
-strangenesses, and sins, and crimes, and all of that - has something divine in them that needs to 
-be regarded with respect, plays an integral role, at least an analogous role, in the creation of 
-habitable order out of chaos. It's a magnificent, remarkable, and crazy idea. Yet, we developed it 
-and I do firmly believe that it sits at the base of our legal system. I think it is the 
-cornerstone of our legal system. That's the notion that everyone is equal before God. That's such 
-a strange idea. It's very difficult to understand how anybody could have ever come up with that 
-idea, because the manifold differences between people are so obvious and so evident that you could 
-say the natural way of viewing someone, or human beings, is in this extremely hierarchical manner 
-where some people are contemptible and easily brushed off as pointless and pathological and 
-without value whatsoever, and all the power accrues to a certain tiny aristocratic minority at the 
-top, but if you look at the way that the idea of individual sovereignty developed, it is clear 
-that it unfolded over thousands, perhaps tens of thousands of years, where it became something 
-that was fixed in the imagination that each individual had something of transcendent value about 
-them, and man I can tell you - we dispense with that idea at our serious peril. And if you're 
-going to take that idea seriously - and you do because you act it out, because otherwise you 
-wouldn't be law abiding citizens. It's shared by anyone who acts in a civilized manner - the 
-question is: why in the world do you believe it? Assuming that you believe what you act out - 
-which I think is a really good way of fundamentally defining belief."
+> The notion that every single human being, regardless of their peculiarities and their 
+> strangenesses, and sins, and crimes, and all of that - has something divine in them that needs to 
+> be regarded with respect, plays an integral role, at least an analogous role, in the creation of 
+> habitable order out of chaos. It's a magnificent, remarkable, and crazy idea. Yet, we developed it 
+> and I do firmly believe that it sits at the base of our legal system. I think it is the 
+> cornerstone of our legal system. That's the notion that everyone is equal before God. That's such 
+> a strange idea. It's very difficult to understand how anybody could have ever come up with that 
+> idea, because the manifold differences between people are so obvious and so evident that you could 
+> say the natural way of viewing someone, or human beings, is in this extremely hierarchical manner 
+> where some people are contemptible and easily brushed off as pointless and pathological and 
+> without value whatsoever, and all the power accrues to a certain tiny aristocratic minority at the 
+> top, but if you look at the way that the idea of individual sovereignty developed, it is clear 
+> that it unfolded over thousands, perhaps tens of thousands of years, where it became something 
+> that was fixed in the imagination that each individual had something of transcendent value about 
+> them, and man I can tell you - we dispense with that idea at our serious peril. And if you're 
+> going to take that idea seriously - and you do because you act it out, because otherwise you 
+> wouldn't be law abiding citizens. It's shared by anyone who acts in a civilized manner - the 
+> question is: why in the world do you believe it? Assuming that you believe what you act out - 
+> which I think is a really good way of fundamentally defining belief.
 
-"The proper path of life is to take the tradition and spirit that is associated with consciousness 
-as such and to act it out in your own personal life in a way that is analogous with the way Christ 
-acted it out in his life. What that means in part is the acceptance of the tragic preconditions of 
-existence. That's partly: betrayal by friends and by family and by the state, it's partly 
-punishment for sins that you did not commit (the arbitrary nature of justice), and the fact of 
-finitude. Your duty, and the way to set things right in the cosmos is to accept all those details 
-as necessary preconditions for being and to act virtuously despite all that. That's a very, very 
-powerful idea."
+> The proper path of life is to take the tradition and spirit that is associated with consciousness 
+> as such and to act it out in your own personal life in a way that is analogous with the way Christ 
+> acted it out in his life. What that means in part is the acceptance of the tragic preconditions of 
+> existence. That's partly: betrayal by friends and by family and by the state, it's partly 
+> punishment for sins that you did not commit (the arbitrary nature of justice), and the fact of 
+> finitude. Your duty, and the way to set things right in the cosmos is to accept all those details 
+> as necessary preconditions for being and to act virtuously despite all that. That's a very, very 
+> powerful idea.
 
-"If you are not capable of cruelty, then you are absolutely a victim of anyone who is. For those 
-who are exceedingly agreeable, there is a part of them crying out for the incorporation of the 
-monster within them, which is what gives them strength of character and self respect, because it 
-is impossible to respect yourself until you grow teeth. And if you grow teeth, you realize that 
-you're somewhat dangerous, or seriously dangerous. Then you might be more willing to demand that 
-you treat yourself with respect and that other people do the same thing. That doesn't mean that 
-being cruel is better than not being cruel. **What it means is that being able to be cruel, and 
-then not being cruel is better than not being able to be cruel, because in the first case you're 
-nothing but weak and naive, and in the second case you're dangerous, but you have it under 
-control.** If you're competent at fighting, it actually decreases the probability that you're 
-going to have to fight, because when someone pushes you you'll be able to respond with confidence, 
-and with any luck a reasonable show of confidence, which is a show of dominance, will be enough to 
-make the bully back off."
+> If you are not capable of cruelty, then you are absolutely a victim of anyone who is. For those 
+> who are exceedingly agreeable, there is a part of them crying out for the incorporation of the 
+> monster within them, which is what gives them strength of character and self respect, because it 
+> is impossible to respect yourself until you grow teeth. And if you grow teeth, you realize that 
+> you're somewhat dangerous, or seriously dangerous. Then you might be more willing to demand that 
+> you treat yourself with respect and that other people do the same thing. That doesn't mean that 
+> being cruel is better than not being cruel. **What it means is that being able to be cruel, and 
+> then not being cruel is better than not being able to be cruel, because in the first case you're 
+> nothing but weak and naïve, and in the second case you're dangerous, but you have it under 
+> control.** If you're competent at fighting, it actually decreases the probability that you're 
+> going to have to fight, because when someone pushes you you'll be able to respond with confidence, 
+> and with any luck a reasonable show of confidence, which is a show of dominance, will be enough to 
+> make the bully back off.
 
-"I know that the evidence for genuine religious experience is incontrovertible, but it's not  
-explicable. So I don't want to explain it away... I want to pull back from that and leave it as a 
-fact and a mystery, and then we're going to look at this from a rational perspective, and say that 
-the initial formulation of the idea of God was an attempt to abstract out the ideal, and to 
-consider it as an abstraction outside its instantiation. And that's good enough. It's an amazing 
-thing if it's true. But I don't want to throw the baby out with the bathwater."
+> I know that the evidence for genuine religious experience is incontrovertible, but it's not  
+> explicable. So I don't want to explain it away... I want to pull back from that and leave it as a 
+> fact and a mystery, and then we're going to look at this from a rational perspective, and say that 
+> the initial formulation of the idea of God was an attempt to abstract out the ideal, and to 
+> consider it as an abstraction outside its instantiation. And that's good enough. It's an amazing 
+> thing if it's true. But I don't want to throw the baby out with the bathwater.
 
-Ideology is a parasite on religious substructures. A religious narrative has a particular set of 
-characteristics. It's very balanced. So for example there's the feminist idea of the patriarchy. 
-Well the religious idea of society has a patriarchal notion built into it. That would be the dying 
-king. The once great dying king. In a religious story, there's the natural world, the chaotic 
-world - there's a positive element and a negative element. Then there's the social world - there's 
-the wise king and the tyrannical king. Then there's the individual world - that's the adversary 
-and the hero. There's always a positive and a negative at each level. And it stops it from being 
-an over simplification."
+> Ideology is a parasite on religious substructures. A religious narrative has a particular set of 
+> characteristics. It's very balanced. So for example there's the feminist idea of the patriarchy. 
+> Well the religious idea of society has a patriarchal notion built into it. That would be the dying 
+> king. The once great dying king. In a religious story, there's the natural world, the chaotic 
+> world - there's a positive element and a negative element. Then there's the social world - there's 
+> the wise king and the tyrannical king. Then there's the individual world - that's the adversary 
+> and the hero. There's always a positive and a negative at each level. And it stops it from being 
+> an over simplification.
 
-"There's a transformation to some degree in the Prophetic Tradition, where there is a spirit that 
-rises above the law, but this transformation really takes place in the New Testament. The Old 
-Testament is prohibition, and the New Testament is, 'here's the good things you do once you're 
-more than merely prohibiting yourself from impulsive sin. There's a positive good to be 
-accomplished, not just a negative to be avoided. You have to look around you within your direct 
-sphere of influence, and you fix the things that announce themselves to be in direct need of 
-repair. And those are often small things. They can start with things as simple as: your room. Put 
-it in order. It's not important that you put your room in order necessarily, what is important is 
-that you learn to distinguish between chaos and order, and that you learn to be able to act in a 
-manner that produces order. In most households there's a hundred things that could be done to make 
-it less hideous and horrible. So practicing that is both a useful form of meditation, but it's 
-also a divine act."
+> There's a transformation to some degree in the Prophetic Tradition, where there is a spirit that 
+> rises above the law, but this transformation really takes place in the New Testament. The Old 
+> Testament is prohibition, and the New Testament is, 'here's the good things you do once you're 
+> more than merely prohibiting yourself from impulsive sin. There's a positive good to be 
+> accomplished, not just a negative to be avoided. You have to look around you within your direct 
+> sphere of influence, and you fix the things that announce themselves to be in direct need of 
+> repair. And those are often small things. They can start with things as simple as: your room. Put 
+> it in order. It's not important that you put your room in order necessarily, what is important is 
+> that you learn to distinguish between chaos and order, and that you learn to be able to act in a 
+> manner that produces order. In most households there's a hundred things that could be done to make 
+> it less hideous and horrible. So practicing that is both a useful form of meditation, but it's 
+> also a divine act.
 
-"Women are attracted to men's ability to generate, to be productive, and to share. These qualities 
-transcend wealth, which can disappear."
+> Women are attracted to men's ability to generate, to be productive, and to share. These qualities 
+> transcend wealth, which can disappear.
 
 ---
 Maps of Meaning digest version: [http://www.cogsci.ecs.soton.ac.uk/cgi/psyc/newpsy?10.077](http://www.cogsci.ecs.soton.ac.uk/cgi/psyc/newpsy?10.077)
