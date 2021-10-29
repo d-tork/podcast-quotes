@@ -1,9 +1,11 @@
-## A Collection of Quotes from Jordan Peterson
+## A Collection of Podcast/Video Quotes
 _Podcasts are referred to by episode name, others by link to source. Emphases like italics and 
-uppercase reflect Peterson's tone, tempo, and volume as these are mostly audio sources. Some 
+uppercase reflect the speaker's tone, tempo, and volume as these are mostly audio sources. Some 
 boldface sentences are my added emphasis or highlights._
 
-[Podcast sources found here.](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
+### Podcast sources
+* [Jordan Peterson](https://jordanbpeterson.com/category/podcasts/podcast-episode/)
+* [Sam Harris](https://samharris.org/podcast/)
 
 ---
 #### The Jordan B. Peterson Podcast S4E41 - The Four Dos and Don'ts of Divorce | Warren Farrell
@@ -852,6 +854,8 @@ the core of what’s admirable.”
 
 ---
 #### Joe Rogan Experience #1006 Jordan Peterson & Bret Weinstein (Sep 1, 2017)
+(Peterson)
+
 `[37:50]` “Get it into your head that you have the capacity for great evil. And stop 
 targeting—stop assuming that that’s something manifesting itself only in the people that you 
 disagree with politically. Take responsibility for that, and try to put your life together.”
@@ -881,6 +885,8 @@ refute them.”**
 
 ---
 #### The Joe Rogan Experience #958 - Jordan Peterson
+(Peterson)
+
 `[1:41:35]` “So imagine that the normal world of mankind is inside that dominance hierarchy where 
 everything is going well, because nothing abnormal is happening and you’re getting what you need 
 and you want and your conscious knowledge suffices. Right? Okay, but then something tilts, and 
