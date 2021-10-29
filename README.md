@@ -8,6 +8,86 @@ boldface sentences are my added emphasis or highlights._
 * [Sam Harris](https://samharris.org/podcast/)
 
 ---
+#### The Jordan B. Peterson Podcast S4E34 - A Conversation so Intense it Might as Well Be Psychedelic | John Vervaeke
+`[1:11:05]` Peterson: I think the atheist critique of religion is a critique at a propositional
+level. 
+
+Vervaeke: I've made a similar point Jordan, I've made the point that they're not paying attention 
+to—I mean when Nietzsche runs into the marketplace, he is talking to the _atheists_ when he says
+"you don't know what you've done when you've killed God." Right? And so to think that religion is
+primarily about asserting propositions for which there is no evidence is to miss all of the 
+non-propositional—so I make a distinction, and it lines up with this, I think that religion is not
+primarily about _knowledge_, I think it's primarily about _wisdom_. Because wisdom is about that 
+fundamental transformation—
+
+Peterson: It's about embodying it. It's about establishing a relationship with it.
+
+Vervaeke: Yes!
+
+Peterson: It's about worshipping it. 
+
+Vervaeke: ...about taking it into your identity, that's what I meant. 
+
+`[1:14:00]` Peterson: We've killed our religion by presuming it was a set of axiomatic 
+presuppositions and listening to the 19th century rationalist atheists.
+
+Vervaeke: Well what we've done is we have confused modernity's understanding of religion with the
+phenomena, which is I think a fundamental mistake. 
+
+Peterson: No... with our blind critique of the phenomenon. 
+
+---
+#### The Jordan B. Peterson Podcast S4E31 - Intimations of Creativity | Dr. Scott Barry Kaufman
+`[26:00]` Kaufman: It's like we don't even _want_ to know the truth [of the role that genes play], 
+in certain circumstances. 
+
+Peterson: Y'know I've thought about that too, it's not surprising that people don't want to know
+the truth about IQ, because it's quite nasty. I mean, there are _huge_ differences between people
+in their intrinsic ability to learn. And that has walloping economic and social consequences. And
+so there's a bitterness in that, that's... 
+
+I mean I still think we have to address it and take it seriously, so for me it's like: IQ does the 
+liberal and the conservative political perspectives incredible damage, because the conservative are 
+likely to say "well there's a job for everyone if they just get up and y'know, get at it." And the 
+liberals like to say "well, everybody can be trained to do everything" and BOTH of those are wrong.
+Because there's a large number of people who are not, who have enough trouble with abstraction that
+finding a productive job in a complex society has become extraordinary difficult. And that's a 
+_huge_ problem. And we have no idea what to do with it, we won't even look at it!
+
+---
+#### The Psychology Podcast with Scott Barry Kaufman - Sam Harris || Free Will (Part 2)
+`[43:10]` Kaufman: I love this transcendent view. And also the idea that you—the point that you 
+make about hate. Y'know, hate doesn't really have a place to program in the robot here once we
+understand that there's no ultimate free will...
+
+...But what I don't understand is in applying that in your own life, you don't apply that when you 
+talk about Trump, I mean you get really angry about...you don't say things like 'we should have 
+sympathy for Trump'—
+
+Harris: —but that's a misunderstanding. So there're certainly moments where I'm captured by 
+something I find so despicable that I'm blind to my own philosophy here. Like, I'm lost in thought;
+I'm identified with a moment of finding Trump despicable, say, and... yeah, so I'm just in the 
+dream, I'm asleep and dreaming and unaware of
+
+Kaufman: You're human. You're human. 
+
+Harris: Yeah. I'm not a Buddha. But much of the time a different thing is happening. And it's not 
+_personal_, it's not that I hate Trump _personally_. It's that I hate—and again this is all 
+slightly anachronistic because he's no longer President, so I'm basically never thinking about him 
+now which is wonderful—but it's not that I hated him personally, it's that I hated _the fact of 
+him_. Right? The fact that we made this sort of man President was so terrible...
+
+...He's so bad, as a reliably malfunctioning robot. It's a little bit analogous to if we elected
+a rhinoceros to be President, I'd be fucking tearing my hair out over how awful that is. At no
+point am I imagining that the rhinoceros can be anything other than a rhinoceros, and at no point
+am I wishing suffering upon the rhinoceros. I don't _hate_ the rhinoceros. The rhinoceros just 
+shouldn't be President of the United States...
+
+...And in some sense we elected a rhinoceros President. And so I spent a long time complaining 
+about that, because of all the things to which that was connected in our society and in our 
+possible future that were worth worrying about.
+
+---
 #### The Jordan B. Peterson Podcast S4E41 - The Four Dos and Don'ts of Divorce | Warren Farrell
 `[1:25:40]` Peterson: You cite an interesting stat here, too, which I thought was worth talking 
 about. Um...  on who should pay the bill on the first date. Um...seventy-two percent of women 
