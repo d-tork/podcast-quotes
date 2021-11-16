@@ -8,6 +8,95 @@ boldface sentences are my added emphasis or highlights._
 * [Sam Harris](https://samharris.org/podcast/)
 
 ---
+#### Sam Harris & Jordan Peterson in Vancouver - Part 1
+`[47:22]` Peterson: That scene that's delimited out at the end of \[the book of\] Revelations, 
+that's a very interesting book, psychologically, 'cuz what it—it's very complicated... So there's
+an idea that's expressed in that book, is that it's something like: things are always falling apart
+in a fundamental manner. It's built into the structure—there's an apocalyptic element to human life.
+We fail in small ways and we fail in catastrophic ways. And everything that we have we lose and we
+die. And societies come to an end. There's an apocalyptic element built into the structure of human
+reality. 
+
+And part of, part of what's revealed in that strange book at the end, which is like a 
+hallucinogenic nightmare in some sense, is that the hero is born at the darkest point in the 
+journey.  And it's a psychological truth, and it's very very apt, because at the darkest point—this 
+is also why Christ is born near the darkest time of the year, from a metaphysical 
+perspective—there's an idea there that when things fall apart, that's the time for the birth of the 
+hero. And the hero in Revelation is also the place where free, where truthful speech most clearly 
+manifests itself, 'cuz in the Christian tradition Christ is identified with truthful speech. And so 
+the notion there is that **redemption under apocalyptic conditions is to be found in the revelation 
+of truthful speech**, which is something that you actually believe!
+
+`[1:23:57]` Harris: You say you believe in God. You have been—
+
+Peterson: No I say I act as if he exists.
+
+Harris: You say what?
+
+Peterson: I say **I act as if he exists.** Which is a much more precise claim. 
+
+Harris: Ok. But then in this case, what... so you act as though God exists, and in addition I've
+heard you say that _I_ act as though God exists, that I can't _really_ be an atheist.
+
+\[jokeful exchange\]
+
+Harris: So in that sense, I'm not really an atheist; I've heard you say this... So in what sense
+do you mean... what _is_ the God that you act as though he/she/it exists, and what is the god-shaped
+thing I must have in my life to prevent me from being a, quote, real atheist? ...What do you mean
+by "God"?
+
+Peterson: Ok, well I'm going to tell you some of the things I mean by "God", ok? ...I'm going to 
+read some things I wrote because it's so complicated, that I'm not sure I can just spin it off
+the top of my head, and so you'll have to excuse me.
+
+So, and what I'm going to do is sort of paint a picture by highlighting different things. I already
+made one point here, I made the point that part of the conception of God that underlies the Western
+ethos is the notion that whatever God is is expressed in the truthful speech that rectifies pathological
+hierarchies. And that isn't all it does, it also confronts the chaos of being itself and generates
+habitable order. That's the metaphysical proposition. And that's best conceptualized as at least one
+element of God. 
+
+And so I would think about it as a transcendent reality that's only observable across the longest
+of time frames, the longest of iterated time frames, to your point. So here's some propositions, 
+and they're complicated. And they need to be unpacked, so I'm just gonna read them and that'll have 
+to do for the time being. 
+
+* God is how we imaginatively and collectively represent the existence and action of consciousness
+across time, as the most real aspects of existence manifest themselves across the longest of time 
+frames but are not necessarily apprehensible as objects in the here and now.  
+	- So what that means in some sense is that you have conceptions of reality built into your 
+	biological and metaphysical structure that are consequence of processes of evolution that
+	occured over unbelievably fast expanses of time and that structure your perception of reality
+	in ways that it wouldn't be structured if you only lived for the amount of time that you're 
+	going to live. And that's part of the problem of deriving values from facts, because you're
+	evanescent and you can't derive the right values from the facts that portray themselves to you
+	in your lives, which is why you have a bioligical structure that's like, 3.5 billion years old.
+* God is that which eternally dies and is reborn in the pursuit of higher being and truth. 
+	- That's a fundamental element of hero mythology.
+* God is the highest value in the hierarchy of values. That's another way of looking at it.
+* God is what calls and what responds in the eternal call to adventure.
+* God is the voice of conscience.
+* God is the source of judgment and mercy and guilt.
+* God is the future to which we make sacrifices. And something akin to the transcendental 
+repository of reputation.
+* God is that which selects among men in the eternal hierarchy of men.
+	- So you know, men arrange themselves into hierarchies, men rise in the hierarchy, and there's
+	principles that are important that determine the probability of their rise, and those 
+	principles aren't tyrannical power, they're something like the ability to articulate truth and 
+	the ability to be competent, and the ability to make appropriate moral judgements. 
+	- And if you can do that in a given situation then all the other men will vote you up the 
+	hierarchy, so to speak, and that will radically increase your reproductive fitness. 
+	- And the operation of that process across long expanses of time looks to me like it's codified 
+	in something like the notion of God the father. 
+	- It's also the same thing that makes men attractive to women, because women peel off the top 
+	of the male hierarchy, and the question is what should be at the top of the hierachy? And the 
+	answer _now_ is tyranny as part of the patriarchy, but the real answer is something like the 
+	ability to use truthful speech in the service of, let's say, well-being.
+	- So that's something that operates across tremendous expanses of time and it plays a role in
+	the selection for survival itself, which makes it a fundamental reality.
+
+
+---
 #### The Jordan B. Peterson Podcast S4E34 - A Conversation so Intense it Might as Well Be Psychedelic | John Vervaeke
 `[1:11:05]` Peterson: I think the atheist critique of religion is a critique at a propositional
 level. 
