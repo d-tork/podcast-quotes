@@ -8,6 +8,18 @@ boldface sentences are my added emphasis or highlights._
 * [Sam Harris](https://samharris.org/podcast/)
 
 ---
+#### How To Avoid The Trap Of Victimhood When Life Gets Hard | Jordan Peterson at Cambridge
+[Caius College, 2 Apr 2022](https://youtu.be/zdRYP2azu2U)
+
+`[0:43]` I saw an endless repetition in my clinical practice and in my own private life, when my
+eyes were open, the consequences of _not saying what was true._ It's like whatever hell you might
+fall into by opening your mouth when you have something to say that isn't popular, it's nothing
+like the hell you're going to envelop yourself in if you lose control of your own tongue and mind.
+
+... You need to be afraid of the right thing. And you should be afraid of contaminating your soul
+with deceit. _That's_ what you should be afraid of. 
+
+---
 #### Sam Harris & Jordan Peterson in Vancouver - Part 1
 `[47:22]` Peterson: That scene that's delimited out at the end of \[the book of\] Revelations, 
 that's a very interesting book, psychologically, 'cuz what it—it's very complicated... So there's
